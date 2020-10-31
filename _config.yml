@@ -1,5 +1,6 @@
 #github:
 #  is_project_page: false
 theme: jekyll-theme-minimal
+show_downloads: false
 title: The Rosicrucian Om Order - The Order Of Melchisedek
 description: Founded by The V. M. Om Yeo Wams Om
