@@ -1,3 +1,4 @@
+<a name="top"></a>
 The Rosecrosses´origin, august members of the Great White Fraternity, faithful apostles of the Rosecross Order, fade in the centuries´ night.
 The Rosecrosses made their appearance in all ages and all countries, under different denominations, shined only for a short instant and then disappeared to keep shinning even more, in the unknown depths of the higher cosmos.
 The wises of Ancient India, many centuries before Christianity, had the Holy CROSS and worthshiped it as an AVATAR or CHRISTIFICATED symbol by which God, the great being, showed.
