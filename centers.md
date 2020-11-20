@@ -2,7 +2,7 @@
   
 [http://www.ordenrosacruzom.org/](http://www.ordenrosacruzom.org/)
   
-Juan Jose Paso 231 PB "2" C1031ABE  
+Juan Jose Paso 231 PB "2" C1031ABE.  
 PHONE (054-11) 4952-2670
   
 ![E-Mail](/assets/img/email_32px.png) correo@ordenrosacruzom.org  
@@ -10,39 +10,37 @@ PHONE (054-11) 4952-2670
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzom.argentina](https://www.facebook.com/rosacruzom.argentina)  
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/argentinarosacruz](https://www.facebook.com/argentinarosacruz)
 
-BOLIVIA
+# BOLIVIA
 
+[http://www.elrosacruz.com/](http://www.elrosacruz.com/)  
+  
+## COCHABAMBA
 
-http://www.elrosacruz.com/
-
-COCHABAMBA
 Street 25 de mayo N° S 0435. Building Abaroa Cinema 2° Piso.  
-P.O.Box N° 2939. Cochabamba. Bolivia.
-PHONE    (059-42) 57583
- 
-rosacruz@supernet.com.bo
-corazóndebolivia@hotmail.com
-rosacruz@mail2.supernet.com.bo
+P.O.Box N° 2939. Cochabamba. Bolivia.  
+PHONE (059-42) 57583
+  
+![E-Mail](/assets/img/email_32px.png) rosacruz@supernet.com.bo
+![E-Mail](/assets/img/email_32px.png) corazondebolivia@hotmail.com
+![E-Mail](/assets/img/email_32px.png) rosacruz@mail2.supernet.com.bo
 
-https://www.facebook.com/ordenrosacruzom.cochabambabolivia/about
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/ordenrosacruzom.cochabambabolivia/about](https://www.facebook.com/ordenrosacruzom.cochabambabolivia/about)
  
-LA  PAZ
+## LA PAZ
 
-C E N T E R
 Pucarani 239 
-(Inquisivi square, 
-to one block of houses and parallel to Av. Pando)
+(Inquisivi square, to one block of houses and parallel to Av. Pando)
           
 Casilla 173 Correo Central
 
-PHONE   (02)- 2461757
+PHONE (02)-2461757
 
-rosacruzluz@yahoo.com
+![E-Mail](/assets/img/email_32px.png) rosacruzluz@yahoo.com
 
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruz.omlapaz.75](https://www.facebook.com/rosacruz.omlapaz.75)
 
-https://www.facebook.com/rosacruz.omlapaz.75
+## EL ALTO
 
-E L   A L T O
 Av. Franco Valle 26 square street 2  Floor 1° Office 36. Zone 12 de Octubre.
 
 PHONE    (02)- 2842375
@@ -51,35 +49,35 @@ rosacruzelalto@yahoo.es
 
 https://www.facebook.com/Orden-Rosacruz-Om-El-Alto-246333055745907
  
- SANTA CRUZ
+## SANTA CRUZ
+
 Street Junin 525.    2º Piso
 
 orc_santacruz@yahoo.com
  
-T A R I J A
+## TARIJA
 
 Street Corrado N° E - 0189  (between Colon and Suipacha)
 Casilla 381
 PHONE   (04) 6645884
 rosacruztarija@mixmail.com
  
-SUCRE
+## SUCRE
 
 Street Eduardo Berdecio 713
 
 +591 67652189
 
-
 rosacruzomsucre@gmail.com
 
 https://www.facebook.com/rosacruzomsucre
  
-O R U R O
+## ORURO
 
 Street Soria Galvarro 6448 (between Aldana  y San Felipe)
 rosacruzomoruro@yahoo.com
  
-POTOSI
+## POTOSI
  
 Street  La Paz  square Omiste
 
@@ -87,8 +85,7 @@ PHONE  6243683
 
  rosacruzptotsis@hotmail.com
  
- 
-COSTA RICA
+# COSTA RICA
 
 accionmisticarosacruz@gmail.com
 FB
