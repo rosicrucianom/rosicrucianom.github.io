@@ -1,4 +1,6 @@
-# ARGENTINE
+# Worldwide Study Centers
+
+## ARGENTINE
   
 [![Web Page](/assets/img/globe_32px.png) http://www.ordenrosacruzom.org/](http://www.ordenrosacruzom.org/)
   
@@ -11,11 +13,11 @@ PHONE (054-11) 4952-2670
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzom.argentina](https://www.facebook.com/rosacruzom.argentina)  
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/argentinarosacruz](https://www.facebook.com/argentinarosacruz)
 
-# BOLIVIA
+## BOLIVIA
 
 [![Web Page](/assets/img/globe_32px.png) http://www.elrosacruz.com/](http://www.elrosacruz.com/)  
   
-## COCHABAMBA
+### COCHABAMBA
 
 Street 25 de mayo N° S 0435. Building Abaroa Cinema 2° Piso.  
 P.O.Box N° 2939. Cochabamba. Bolivia.  
@@ -28,7 +30,7 @@ PHONE (059-42) 57583
   
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/ordenrosacruzom.cochabambabolivia/about](https://www.facebook.com/ordenrosacruzom.cochabambabolivia/about)
  
-## LA PAZ
+### LA PAZ
 
 Pucarani 239  
 (Inquisivi square, to one block of houses and parallel to Av. Pando)
@@ -41,7 +43,7 @@ PHONE (02)-2461757
   
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruz.omlapaz.75](https://www.facebook.com/rosacruz.omlapaz.75)
 
-## EL ALTO
+### EL ALTO
 
 Av. Franco Valle 26 square street 2  Floor 1° Office 36. Zone 12 de Octubre.
   
@@ -51,13 +53,13 @@ PHONE (02)-2842375
 
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Orden-Rosacruz-Om-El-Alto-246333055745907](https://www.facebook.com/Orden-Rosacruz-Om-El-Alto-246333055745907)
  
-## SANTA CRUZ
+### SANTA CRUZ
 
 Street Junin 525.    2º Piso
 
 ![E-Mail](/assets/img/email_32px.png) orc_santacruz@yahoo.com
  
-## TARIJA
+### TARIJA
 
 Street Corrado N° E - 0189  (between Colon and Suipacha)  
 Casilla 381  
@@ -66,7 +68,7 @@ PHONE (04) 6645884
   
 ![E-Mail](/assets/img/email_32px.png) rosacruztarija@mixmail.com
  
-## SUCRE
+### SUCRE
 
 Street Eduardo Berdecio 713  
   
@@ -76,13 +78,13 @@ PHONE +591 67652189
   
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzomsucre](https://www.facebook.com/rosacruzomsucre)
  
-## ORURO
+### ORURO
 
 Street Soria Galvarro 6448 (between Aldana  y San Felipe)  
   
 ![E-Mail](/assets/img/email_32px.png) rosacruzomoruro@yahoo.com
  
-## POTOSI
+### POTOSI
  
 Street  La Paz  square Omiste  
   
@@ -90,13 +92,13 @@ PHONE 6243683
   
 ![E-Mail](/assets/img/email_32px.png) rosacruzptotsis@hotmail.com
  
-# COSTA RICA
+## COSTA RICA
 
 ![E-Mail](/assets/img/email_32px.png) accionmisticarosacruz@gmail.com  
   
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Orden-Rosacruz-Om-Costa-Rica-105732404597148/about](https://www.facebook.com/Orden-Rosacruz-Om-Costa-Rica-105732404597148/about)
 
-# ECUADOR
+## ECUADOR
 
 Av Pichincha, Quito 170121  
   
@@ -106,11 +108,11 @@ PHONE (593) 99653367
 
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/RosacruzOmQuito](https://www.facebook.com/RosacruzOmQuito)
   
-# HONDURAS
+## HONDURAS
 
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/OrdenRosacruzOmHonduras](https://www.facebook.com/OrdenRosacruzOmHonduras)
 
-# LITHUANIA
+## LITHUANIA
 
 VILNIUS  
   
@@ -118,15 +120,15 @@ VILNIUS
 
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Rožekryžiečių-Om-Ordinas-105311031394336](https://www.facebook.com/Rožekryžiečių-Om-Ordinas-105311031394336)
   
-# PERU
+## PERU
 
-## LIMA
+### LIMA
 
 Avenue Nicolás de Piérola 757. Office 507.
   
 ![E-Mail](/assets/img/email_32px.png) rosacruzlima@yahoo.com
  
-## AREQUIPA 
+### AREQUIPA 
  
 "Local ORCA" Av. Alcides Carrión 175. Floor 2.   
 La Pampilla. Distrit José L. Bustamante y Rivero.   
@@ -140,7 +142,7 @@ LORENA MENDOZA: 9931061
 
 ![E-Mail](/assets/img/email_32px.png) ordenrosacruzom_arequipa@yahoo.com
  
-# SPAIN
+## SPAIN
 
 MADRID  
 Aula Luxis Orden Rosa Cruz Om  
@@ -154,7 +156,7 @@ PHONE (0034)-610335835
   
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Orden-Rosa-Cruz-Om-Madrid-873934476037196](https://www.facebook.com/Orden-Rosa-Cruz-Om-Madrid-873934476037196)
  
-# UNITED STATES OF AMERICA
+## UNITED STATES OF AMERICA
 
 HEADQUARTERS
 
