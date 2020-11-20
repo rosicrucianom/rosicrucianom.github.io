@@ -7,7 +7,7 @@ PHONE (054-11) 4952-2670
   
 correo@ordenrosacruzom.org
 
-[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzom.argentina](https://www.facebook.com/rosacruzom.argentina)
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzom.argentina](https://www.facebook.com/rosacruzom.argentina)  
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/argentinarosacruz](https://www.facebook.com/argentinarosacruz)
 
 BOLIVIA
