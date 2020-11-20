@@ -1,4 +1,4 @@
-{% include_relative practices.md %}
+{% include practices.md %}
 
 
 
