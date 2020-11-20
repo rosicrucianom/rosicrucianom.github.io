@@ -1,5 +1,7 @@
 # Worldwide Study Centers
 
+The Rosicrucian Om Order has presence across the Earth.
+
 ## ARGENTINE
   
 [![Web Page](/assets/img/globe_32px.png) http://www.ordenrosacruzom.org/](http://www.ordenrosacruzom.org/)
