@@ -2,14 +2,13 @@
   
 [http://www.ordenrosacruzom.org/](http://www.ordenrosacruzom.org/)
   
-Juan Jose Paso 231  PB "2" C1031ABE.  PHONE   (054-11)  4952-2670
+Juan Jose Paso 231 PB "2" C1031ABE  
+PHONE (054-11) 4952-2670
   
 correo@ordenrosacruzom.org
 
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzom.argentina](https://www.facebook.com/rosacruzom.argentina)
-  
-https://www.facebook.com/argentinarosacruz
-   
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/argentinarosacruz](https://www.facebook.com/argentinarosacruz)
 
 BOLIVIA
 
