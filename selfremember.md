@@ -1,6 +1,6 @@
 {% include practices.md %}
 
-
+SELF-REMENBER AND SELF-OBSERVATION
 
 Here we find the OM in Sanskrit,
 primordial sound of universal character
