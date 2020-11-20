@@ -1,6 +1,6 @@
 # Conferences
 
-Some topics, which are discussed in public conferences
+Some topics, which are discussed in public conferences:
 
 * The awakening of the Conscience.
 * Intelligence and Ego.
@@ -25,8 +25,8 @@ Some topics, which are discussed in public conferences
   
 ### ALL THE ACTIVITIES AND CONFERENCES ARE FOR FREE,  WITHOUT ANY COMMITEMENT OF PARTICIPANTS.
   
-The Rosicrucian Om Order **doesn't** issue any type of Certificates of Studies, Holding of Master or Initiations, neither talisman or amulets of occult grade or of camera.
-Likewise we **don’t** practice mediums, spiritisms, witchcrafts or charms, neither satanism in any of its modalities.
-As well there is **no** usage of any drug type, hallucinogens or stimulants that alter the normal operation of the human body.
+The Rosicrucian Om Order **doesn't** issue any type of Certificates of Studies, Holding of Master or Initiations, neither talisman or amulets of occult grade or of camera.  
+Likewise we **don’t** practice mediums, spiritisms, witchcrafts or charms, neither satanism in any of its modalities.  
+As well there is **no** usage of any drug type, hallucinogens or stimulants that alter the normal operation of the human body.  
   
 The Rosicrucian Om Order doesn't take the responsibility for the wrong use or interpretation that groups and/or people can make of the Sacred Teachings given by the Venerable Masters of the White Lodge.
