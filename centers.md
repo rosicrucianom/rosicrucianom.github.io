@@ -55,63 +55,70 @@ PHONE (02)-2842375
 
 Street Junin 525.    2º Piso
 
-orc_santacruz@yahoo.com
+![E-Mail](/assets/img/email_32px.png) orc_santacruz@yahoo.com
  
 ## TARIJA
 
-Street Corrado N° E - 0189  (between Colon and Suipacha)
-Casilla 381
-PHONE   (04) 6645884
-rosacruztarija@mixmail.com
+Street Corrado N° E - 0189  (between Colon and Suipacha)  
+Casilla 381  
+  
+PHONE (04) 6645884  
+  
+![E-Mail](/assets/img/email_32px.png) rosacruztarija@mixmail.com
  
 ## SUCRE
 
-Street Eduardo Berdecio 713
-
-+591 67652189
-
-rosacruzomsucre@gmail.com
-
-https://www.facebook.com/rosacruzomsucre
+Street Eduardo Berdecio 713  
+  
+PHONE +591 67652189
+  
+![E-Mail](/assets/img/email_32px.png) rosacruzomsucre@gmail.com
+  
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzomsucre](https://www.facebook.com/rosacruzomsucre)
  
 ## ORURO
 
-Street Soria Galvarro 6448 (between Aldana  y San Felipe)
-rosacruzomoruro@yahoo.com
+Street Soria Galvarro 6448 (between Aldana  y San Felipe)  
+  
+![E-Mail](/assets/img/email_32px.png) rosacruzomoruro@yahoo.com
  
 ## POTOSI
  
-Street  La Paz  square Omiste
-
-PHONE  6243683
-
- rosacruzptotsis@hotmail.com
+Street  La Paz  square Omiste  
+  
+PHONE 6243683
+  
+![E-Mail](/assets/img/email_32px.png) rosacruzptotsis@hotmail.com
  
 # COSTA RICA
 
-accionmisticarosacruz@gmail.com
-FB
-https://www.facebook.com/Orden-Rosacruz-Om-Costa-Rica-105732404597148/about
+![E-Mail](/assets/img/email_32px.png) accionmisticarosacruz@gmail.com
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Orden-Rosacruz-Om-Costa-Rica-105732404597148/about](https://www.facebook.com/Orden-Rosacruz-Om-Costa-Rica-105732404597148/about)
 
-ECUADOR
-QUITO 
-Av Pichincha, Quito 170121
+# ECUADOR
 
-PHONE (593) 99653367 
-rosacruz_ecu@yahoo.com
+Av Pichincha, Quito 170121  
+  
+PHONE (593) 99653367  
+  
+![E-Mail](/assets/img/email_32px.png) rosacruz_ecu@yahoo.com
 
-https://www.facebook.com/RosacruzOmQuito
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/RosacruzOmQuito](https://www.facebook.com/RosacruzOmQuito)
+  
+# HONDURAS
 
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/OrdenRosacruzOmHonduras](https://www.facebook.com/OrdenRosacruzOmHonduras)
+
+# LITHUANIA
+
+VILNIUS  
+  
+![E-Mail](/assets/img/email_32px.png) rosicrucianom@gmail.com
+
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Rožekryžiečių-Om-Ordinas-105311031394336](https://www.facebook.com/Rožekryžiečių-Om-Ordinas-105311031394336)
  
-HONDURAS
-https://www.facebook.com/OrdenRosacruzOmHonduras
+# SPAIN
 
-
-L I T H U A N I A
-VILNIUS 
-rosicrucianom@gmail.com
- 
-SPAIN
 MADRID
 Aula Luxis Orden Rosa Cruz Om
 New direction    
