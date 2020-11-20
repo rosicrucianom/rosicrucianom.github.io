@@ -1,6 +1,6 @@
 # ARGENTINE
   
-[http://www.ordenrosacruzom.org/](http://www.ordenrosacruzom.org/)
+[![Web Page](/assets/img/globe_32px.png) http://www.ordenrosacruzom.org/](http://www.ordenrosacruzom.org/)
   
 Juan Jose Paso 231 PB "2" C1031ABE.  
   
@@ -13,7 +13,7 @@ PHONE (054-11) 4952-2670
 
 # BOLIVIA
 
-[http://www.elrosacruz.com/](http://www.elrosacruz.com/)  
+[![Web Page](/assets/img/globe_32px.png) http://www.elrosacruz.com/](http://www.elrosacruz.com/)  
   
 ## COCHABAMBA
 
