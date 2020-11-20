@@ -1,37 +1,32 @@
-Representation of the Initiate (Winged Escarabaeus) transforming the moon at his feet, which is the egoistic nature, (lead) in Sun, which is the solar nature, virtues (spiritual gold), clear allusion to the self-realization.
+# Conferences
 
-Some topics treated in public conferences. .
+Some topics, which are discussed in public conferences
 
-What mysteries do RoseCrosses have that let them trought the centuries become Life´s Masters?
-The Path of the Rose and the Cross.
-Religion y Sects. How differentiate them?
-The Pseudo-Religions problem in today´s World.
-The real Christianity. The Esoteric Christianity.
-The White Lodge´s Masters, Jesus, John the Baptist, St. Germain´s Count, Sanat Kumara, Babaji, etc.
-Revealed Alchemy, occult physiology and practices for the latent abilities´ development.
-The Social Problems and the Youth. Existentiality sense.
-Cause-effect, return, recuerrency, karma, dharma y reincarnation. Part 1.
-Evolution, involution, Cosmic Laws, transmigration and second death. Part 2
-UFOs, the reality behind the phenomenon.
-Universal Symbolism. The Rose and the Cross´symbol.
-Tiahuanacu, Machu Pichu and other Solar cultures in America.
-Today´s World and its relation with the Atlantis, Lemuria and the Eden.
-True Love´s search. The soul mate.
-Sexual Energy´s hidden and secret power..
-The conscience awakening. Existence in other dimensions.
-Astral projections.
-Self-knowing tecniques.
-The man internal bodies.
-Vital Body
-Astral Body
-Mental Body.
-Causal Body.
-The five pillars of Knowledge.
-Intelligence and Ego.
-Creative Imagination.
-Sexual Transmutation. Different kinds of transmutation.
-Safe sex without preservatives.
-Supra anatomy, supraphysiology of human Sexuality.
-Life´s tree.
-What´s Christmas?
-Round tables
+* The awakening of the Conscience.
+* Intelligence and Ego.
+* The Tree of Life.
+* The Shakras – practices for the awakening and development of the Shakras.
+* Sexual Transmutation. Different kinds of transmutation.
+* What mysteries do Rosicrucians have that let them trought the centuries become Life´s Masters?
+* The Path of the Rose and the Cross.
+* The White Lodge´s Masters - Jesus, John the Baptist, St. Germain´s Count, Sanat Kumara, Babaji, etc.
+* Revealed Alchemy, occult physiology and practices for the latent abilities´ development.
+* Cause-effect, return, recurrency, karma, dharma and  reincarnation. 
+* Evolution, involution, Cosmic Laws, transmigration and second death. 
+* Tiahuanacu, Machu Pichu and other Solar cultures in America.
+* Today´s World and its relation with the Atlantis, Lemuria and the Eden.
+* Sexual Energy´s hidden and secret power.
+* Existence in other dimensions.
+* Astral projections.
+* Self-knowing techniques.
+* The Man internal bodies -Vital Body, Astral Body, Mental Body, Causal Body, Budhic Body, Atmic Body.
+* The five pillars of Knowledge.
+* Creative Imagination.
+  
+### ALL THE ACTIVITIES AND CONFERENCES ARE FOR FREE,  WITHOUT ANY COMMITEMENT OF PARTICIPANTS.
+  
+The Rosicrucian Om Order **doesn't** issue any type of Certificates of Studies, Holding of Master or Initiations, neither talisman or amulets of occult grade or of camera.
+Likewise we **don’t** practice mediums, spiritisms, witchcrafts or charms, neither satanism in any of its modalities.
+As well there is **no** usage of any drug type, hallucinogens or stimulants that alter the normal operation of the human body.
+  
+The Rosicrucian Om Order doesn't take the responsibility for the wrong use or interpretation that groups and/or people can make of the Sacred Teachings given by the Venerable Masters of the White Lodge.
