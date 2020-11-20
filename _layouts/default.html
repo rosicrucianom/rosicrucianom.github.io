@@ -1,5 +1,6 @@
 <!DOCTYPE html>
 <html lang="{{ site.lang | default: "en-US" }}">
+  <a name="top"></a>
   <head>
     <meta charset="UTF-8">
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
@@ -12,7 +13,6 @@
     <![endif]-->
   </head>
   <body>
-    <a name="top"></a>
     <div class="wrapper">
       {% if site.logo %}
         <img src="{{site.logo | relative_url}}" alt="Logo" />
@@ -42,7 +42,8 @@
         <p><a href="{{ "contacts.html#text" | relative_url }}">Our Contacts</a></p>
                 
         <p>{{ site.description | default: site.github.project_tagline }}</p>
-        <a name="text" align="right"><a href="{{ "#top" }}">Top of Page ^</a></a>
+        
+        <p><a name="text" href="{{ "#top" }}">Top of Page ^</a></p>
       </header>
       <section>
 
