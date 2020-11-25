@@ -36,17 +36,25 @@ El Ritual De Melquisedec
 
 ## The Esoteric Rosicrucian Courses
 
+### The Vital Body
+
 Del Cuerpo Vital  
 ![Book](/assets/img/book_cuerpo_vital.jpg)  
-  
-Del Cuerpo Astral  
+
+### The Astral Body
+
+Del Cuerpo Astral
 ![Book](/assets/img/book_cuerpo_astral_1.jpg)  
   
-Del Cuerpo Astral  
+Del Cuerpo Astral 
 ![Book](/assets/img/book_cuerpo_astral_2.jpg)  
+  
+### The Mental Body
   
 Del Cuerpo Mental  
 ![Book](/assets/img/book_cuerpo_mental.jpg)  
+  
+### The Causal Body
   
 Del Cuerpo Causal  
 ![Book](/assets/img/book_cuerpo_causal.jpg)  
