@@ -21,11 +21,16 @@ La Iniciacion Rosacruz
 ![Book](/assets/img/book_ritual.jpg)  
 El Ritual De Melquisedec  
 
-![Books](/assets/img/books_curso_esoterico.jpg)  
 Curso Esoterico Rosacruz  
-* Del Cuerpo Vital  
-* Del Cuerpo Astral  
-* Del Cuerpo Mental  
-* Del Cuerpo Causal  
+![Book](/assets/img/book_cuerpo_vital.jpg)  
+Del Cuerpo Vital  
+![Book](/assets/img/book_cuerpo_astral_1.jpg)  
+Del Cuerpo Astral  
+![Book](/assets/img/book_cuerpo_astral_2.jpg)  
+Del Cuerpo Astral  
+![Book](/assets/img/book_cuerpo_mental.jpg)  
+Del Cuerpo Mental  
+![Book](/assets/img/book_cuerpo_causal.jpg)  
+Del Cuerpo Causal  
 
 The books that are published by V.M. Om Yeo Wams Om - Dr. Juan Santa Cruz Torrez.
