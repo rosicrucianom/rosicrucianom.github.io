@@ -6,55 +6,55 @@ The books that are published by V.M. Om Yeo Wams Om - Dr. Juan Santa Cruz Torrez
 
 ### The Rosicrucian Om Order. The Order Of Melchisedec
 
-La Orden Rosa Cruz. El Orden De Melquisedec  
 ![Book](/assets/img/book_orc_om.jpg)  
+La Orden Rosa Cruz. El Orden De Melquisedec  
   
 ### The Alchemical Wedding
 
-Bodas Alquimicas  
 ![Book](/assets/img/book_alquimicas.jpg)  
+Bodas Alquimicas  
   
 ### The Gospel Of Melchisedek
 
-El Evangelio De Melquisedec  
 ![Book](/assets/img/book_evangelio.jpg)  
+El Evangelio De Melquisedec  
   
 ### Creative Imagination
 
-Imaginacion Creadora  
 ![Book](/assets/img/book_imaginacion.jpg)  
+Imaginacion Creadora  
   
 ### The Rosicrucian Initiation
 
-La Iniciacion Rosacruz  
 ![Book](/assets/img/book_iniciacion.jpg)  
+La Iniciacion Rosacruz  
   
 ### The Ritual Of Melchisedek
 
-El Ritual De Melquisedec  
 ![Book](/assets/img/book_ritual.jpg)  
+El Ritual De Melquisedec  
 
 ## The Esoteric Rosicrucian Courses
 
 ### The Vital Body
 
-Del Cuerpo Vital  
 ![Book](/assets/img/book_cuerpo_vital.jpg)  
+Del Cuerpo Vital  
 
 ### The Astral Body
 
-Del Cuerpo Astral
 ![Book](/assets/img/book_cuerpo_astral_1.jpg)  
+Del Cuerpo Astral (I)
   
-Del Cuerpo Astral 
 ![Book](/assets/img/book_cuerpo_astral_2.jpg)  
+Del Cuerpo Astral (II)
   
 ### The Mental Body
   
-Del Cuerpo Mental  
 ![Book](/assets/img/book_cuerpo_mental.jpg)  
+Del Cuerpo Mental  
   
 ### The Causal Body
   
-Del Cuerpo Causal  
 ![Book](/assets/img/book_cuerpo_causal.jpg)  
+Del Cuerpo Causal  
