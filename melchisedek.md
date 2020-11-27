@@ -29,7 +29,7 @@ OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of t
 ![DAGON](/assets/img/dagon_sac.jpg)
 ![DAGON](/assets/img/dagon_color.jpg)  
 
-### Excerpt from the Book "The Rosicrucian Om Order. The Order Of Melchisedec"
+## Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedec"
 
 101\.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
 
@@ -96,4 +96,4 @@ I.A.O.  =  **I.A.O.**
 
 129\.	The whole biblical science and wisdom synthesizes itself in the Mystical Decade, in the I.A.O, in the Great Real Arcanum taught by MELCHISEDEK, the Priest of the Highest God, for the constitution of CHILDREN OF THE SUN, of the SOLAR CHRISTUS, and thus form with CHRISTIFIED men and women, the SOLAR CITY, composed by SOLAR men and women that have lived CHRIST teachings, synthesized in the CHRISTIFYING values.
 
-## LIFE, DEATH, LOVE, LIBERTY, WISDOM.
+## LIFE, DEATH, LOVE, LIBERTY, WISDOM
