@@ -28,6 +28,8 @@ The FIRE is the FATHER.
 The WATER is the MOTHER.  
 The SPIRIT (FIRE) by the alchemist transmutation fertilize the DIVINE MOTHER (WATER) creating the DIVINE CROSS from which CHRIST (THE ROSE) is born.  
 
+![The Man and Woman](/assets/img/the_man_and_woman.jpg)
+
 THE UNIVERSE IS ONE GREAT ROSE BLOOMMING IN THE UNMANIFEST CROSS OF THE ABSOLUTE.  
 
 The male principle (the phale or stick) fertilizes the female principle (the womb) for this generatrix act to create the ROSE (UNIVERSE).  
@@ -40,12 +42,12 @@ The SPIRIT, the FIRE that´s represented by the vertical log, fertilizes the wat
 
 It´s in the ROSE and in the CROSS where the secret of the SOLAR MYSTERY, that drives the Initiate to the Christification.  
 
-Only fertilizing our seminal waters with the spirit´s fire, we could achieve our sublime Christification.  
+Only fertilizing our seminal waters with the spirit's fire, we could achieve our sublime Christification.  
 
-It´s the Spirit who, using it´s expression vehicle, ferilizes the seminal waters with its solar fire, and so it creates Christify bodies, solar bodies which lead us to the uncreated light, to the absolute.  
+It's the Spirit who, using its expression vehicle, ferilizes the seminal waters with its solar fire, and so it creates Christify bodies, solar bodies which lead us to the uncreated light, to the absolute.  
 
-This knowledge embrace orbits out of time and eternity, and goes further on the mind and the Budhas.  
+This knowledge embraces, orbits out of time and eternity, and goes further from the mind and the Budhas.  
 
-The Rosecross has its origin in the depths of the absolute's uncreated light.  
+The Rosicrucian Order has its origin in the depths of the absolute's uncreated light.  
 
-The Rosecross is Universal.  
+The Rosicrucian Order is Universal.  
