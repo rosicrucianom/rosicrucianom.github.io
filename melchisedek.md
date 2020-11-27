@@ -96,4 +96,4 @@ I.A.O.  =  **I.A.O.**
 
 129\.	The whole biblical science and wisdom synthesizes itself in the Mystical Decade, in the I.A.O, in the Great Real Arcanum taught by MELCHISEDEK, the Priest of the Highest God, for the constitution of CHILDREN OF THE SUN, of the SOLAR CHRISTUS, and thus form with CHRISTIFIED men and women, the SOLAR CITY, composed by SOLAR men and women that have lived CHRIST teachings, synthesized in the CHRISTIFYING values.
 
-## LIFE, DEATH, LOVE, LIBERTY, WISDOM
+## LIFE, DEATH, LOVE, LIBERTY, WISDOM.
