@@ -22,6 +22,8 @@ Some topics, which are discussed in public conferences:
 * The Man internal bodies -Vital Body, Astral Body, Mental Body, Causal Body, Budhic Body, Atmic Body.
 * The five pillars of Knowledge.
 * Creative Imagination.
+
+![Initiation](/assets/img/initiation.jpg)
   
 #### ALL THE ACTIVITIES AND CONFERENCES ARE FOR FREE, WITHOUT ANY COMMITEMENT OF PARTICIPANTS.
   
