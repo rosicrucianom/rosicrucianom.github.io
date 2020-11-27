@@ -12,13 +12,13 @@ All the Initiates in the CROSS' holy science had as maximum achieved the bloomin
 
 The Great Mystical Rose means the Great Work's total magnificent achievement. The full _Christification_ of the Master, the Great GURUJI.  
 
-The Rose in the Cross simbolize the INNER CHRIST, which blooms over the cross, after the electro-magnetic exchange of the two poles also symbolized in the vertical and horizontal logs.  
+The Rose in the Cross simbolizes the INNER CHRIST, which blooms over the cross, after the electro-magnetic exchange of the two poles also symbolized in the vertical and horizontal logs.  
 
 The ROSICRUCIAN is a clear symbol of the SOLAR ARCANUM, it´s the sign of the FULFILLED MAN, a CHRIST man.  
 
 All those people hidden in the desert sand, immerse in the oceans or in the walls of the mountains as in the white poles, knew to the bottom the meaning of the ROSE CROSS and they lived it very intensively.  
 
-In the CROSS as in the ROSE, are symbolized the alchemist processes of the second birth that JESUS told Nicodemus (John 3 - 1).  
+In the CROSS as in the ROSE, are symbolized the _alchemist_ processes of the _second birth_ that JESUS told Nicodemus (John 3 - 1).  
 
 The spirit is fire, and it´s the male eternal principle, and the water is the feminine universal principle and it´s formed by the ENS SEMINIS.
 
@@ -38,7 +38,7 @@ The male principle (the phale or stick) fertilizes the female principle (the wom
 
 The ROSE is the SON, symbolizing and personifing the CHRIST.  
 
-The basic water for the creation of life, is represented in the horizontal log, and this log and water are in the human creature, in its ENS SEMINIS, in its DIVINE SEED.  
+The basic water for the creation of life, is represented in the horizontal log, and this log and water are in the human creature, in its **ENS SEMINIS**, in its **_DIVINE SEED_**.  
 
 The SPIRIT, the FIRE that´s represented by the vertical log, fertilizes the water of life and the ROSE is born, meaning the CHRIST.  
 
