@@ -66,6 +66,8 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
 
 107\.	JESUS THE CHRIST is, according to the ORDER OF MELCHISEDEK, one of the most exalted ROSICRUCIAN MASTERS.
 
+![Bread_Wine_JESUS_CHRIST](/assets/img/bread_wine_jesus.jpg)  
+
 108\.	MELCHISEDEK is an inhabitant of the ABSOLUTE and in far away MAHAVANTARAS or cosmic days, resigned to that unconceivable happiness and because of that he is PRIEST OF THE HIGHEST GOD.
 
 109\.	JESUS the CHRIST is also an INHABITANT OF THE ABSOLUTE, and the same as MELCHISEDEK, had the courage to resign to the indescribable joy of the divine ABSOLUTE’S bosom in order to stay to work benefiting the human anthill.
