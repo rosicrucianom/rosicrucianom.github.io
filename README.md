@@ -1,6 +1,6 @@
 # The Rosicrucian Om Order - The Order Of Melchisedek
 
-The Rosicrucians' origin, august members of the **Great White Fraternity**, faithful apostles of the Rosicrucian Order, fade in the night of the centuries.  
+The origin of Rosicrucians, august members of the **Great White Fraternity**, faithful apostles of the Rosicrucian Order, fade in the night of the centuries.  
 
 The Rosicrucians made their appearance in all ages and all countries, under different denominations, shined only for a short instant and then disappeared to keep shinning even more, in the _unknown depths of the higher cosmos_.  
 
@@ -48,7 +48,7 @@ Only fertilizing our seminal waters with the spirit's fire, we could achieve our
 
 ![Sunset at The Sea](/assets/img/sunset_sea_800x600.jpg)
 
-It's the Spirit who, using its expression vehicle, ferilizes the seminal waters with its solar fire, and so it creates **Christified bodies**, solar bodies which lead us to the uncreated light, to the absolute.  
+It's the Spirit who, using its expression vehicle, ferilizes the seminal waters with its solar fire, and so it creates _Christified bodies_, solar bodies which lead us to the uncreated light, to the absolute.  
 
 This knowledge embraces, orbits out of time and eternity, and goes further from the mind and the Budhas.  
 
