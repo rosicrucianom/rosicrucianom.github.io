@@ -1,0 +1,66 @@
+101.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
+
+102.	OANNES blossomed with all splendor of the Father’s Sapience there in the ancient Caldea, where he had many disciples that elevated themselves to the NIRVANA ineffable regions; others kept their christened bodies full of life until they assimilated into themselves the elixir of IMMORTALITY.
+
+103.	OANNES and his real BEING, THE GREAT MELCHISEDEK, also conferred SUBLIME INITIATION to the Patriarch ABRAHAM.
+
+104.	After a bloody battle in which Abraham came out victorious; he prostrated himself full of sublime adoration before MELCHISEDEK, who communicated to him the unutterable Secret of the SOLAR ARCANUM and also taught him the PARTITION OF BREAD AND WINE.  Like such is found it transcribed in the book of Genesis.
+
+105.	The Great PATRIARCH ABRAHAM received the INITIATION there in the far away land of UR, in Caldea, and it was the GREAT BEING, the PRIEST OF THE HIGHEST GOD, MELCHISEDEK, who next to the Venerable SANAT KUMARA, accepted ABRAHAM  INTO THEIR MAJESTIC TEMPLES.  Abraham is a Rosicrucian Priest.
+
+106.	OANNES, Bodhisatwa of the lord MELCHISEDEK, continued his long work through time, organizing and reorganizing the ORDER OF MELCHISEDEK.  JESUS, THE CARPENTER’S SON, had also the High honor of entering the ORDER OF MELCHISEDEK in past times and attained to assimilate in himself all the fire and the light of the CROSS and of the ROSE, becoming he himself a LIVING ROSICRUCIAN.
+
+107.	JESUS THE CHRIST is, according to the ORDER OF MELCHISEDEK, one of the most exalted ROSICRUCIAN MASTERS.
+
+108.	MELCHISEDEK is an inhabitant of the ABSOLUTE and in far away MAHAVANTARAS or cosmic days, resigned to that unconceivable happiness and because of that he is PRIEST OF THE HIGHEST GOD.
+
+109.	JESUS the CHRIST is also an INHABITANT OF THE ABSOLUTE, and the same as MELCHISEDEK, had the courage to resign to the indescribable joy of the divine ABSOLUTE’S bosom in order to stay to work benefiting the human anthill.
+
+110.	MELCHISEDEK, JESUSCHRISTUS, are the marvelous ROSES that flourish full of FIRE AND LIGHT in the unrevealed CROSS OF THE ABSOLUTE. 
+
+111.	MELCHISEDEK is the Majestic PLANETARY REGENT of our planet EARTH and his TEMPLE is found in the igneous center of the Earth, where he officiates with the majestic rituals from Life’s dawn.
+
+112.	MELCHISEDEK and his ORDER, are conscientiously present at those Holy Rituals that are carried out in SUPERIOR PLANES of Cosmic Conscience. 
+
+113.	By the exposed, the origin of the ROSICRUCIAN ORDERS is made clear, the same who are elevated members of the Majestic ORDER OF MELCHISEDEK.
+
+114.	Many were the ones that thought and defended at their nerves cost, the hypothetic and peregrine idea that the ROSICRUCIAN ORDER had its origin among the Egyptians.  All those investigators lacked the LIGHT OF CONSCIENCE to “SEE” among the shadows of their ignorance.
+
+115.	The ROSE AND THE CROSS, the ROSICRUCIAN ORDER is the same ORDER OF MELCHISEDEK that emerged at life’s dawn, millions of CENTURIES ago and in former MAHAVANTARAS or past cosmic days.
+
+116.	It was precisely the MOST ELEVATED PRIEST OF THE HIGHEST GOD:  MELCHISEDEK, who established the ORDER OF MELCHISEDEK, THE ROSICRUCIAN ORDER, there in the far away Lemuriah.
+
+117.	It was OANNES, his Bodhisatwa, who imposed himself the gigantic mission of FULFILLING the FATHER’S WORK in all of the continents of the submerged LEMURIA, and then in all of the continents of the also submerged ATLANTIS.
+
+118.	Many INITIATED and  ROSICRUCIAN MASTERS helped and help in that supreme and great mission, constantly lighting up the ROSICRUCIAN light in all times and places.
+
+119.	In the Epistle written by PAUL to the HEBREWS, we found the following versicles that refer themselves to MELCHISEDEK the DIVINE GREAT PRIEST.
+
+120.	“BECAUSE THIS MELCHISEDEK, KING OF SALEM, PRIEST OF THE HIGHEST GOD, THAT CAME OUT TO MEET ABRAHAM THAT RETURNED FROM THE FALL OF THE KINGS AND BLESSED HIM, TO WHOM THUS GAVE ABRAHAM TITHES OF EVERYTHING, WHOSE NAME FIRST OF ALL MEANS KING OF JUSTICE AND ALSO KING OF SALEM; THAT IS, KING OF PEACE, WITHOUT FATHER AND WITHOUT MOTHER, WITHOUT LINEAGE, THAT HAS NO BEGINNING OF DAYS OR END OF LIFE, BUT WAS MADE TO THE IMAGE OF GOD’S SON, REMAINS PRIEST FOREVER.  CONSIDER THEN HOW GREAT THIS ONE WAS, TO WHOM EVEN ABRAHAM THE PATRIARCH GAVE HIM TITHES OF ALL THE TREASURE.” (Hebrews Chap. 7; vers. 1 to 4)   
+
+121.	Further it says:  “And this is manifested, if similar to MELCHISEDEK arises a different priest, not constituted according to the law of the commandment about the descent, but according to power of an indestructible life”.  “Then testimony is given of him:  You are Priest forever, as per the Order of Melchisedek.”  (Id. 15 to 17).
+
+122.	There were many Sublime Priests consecrated according to the ORDER OF MELCHISEDEK with OATH FROM THE SAME MELCHISEDEK, of whom it is said:  “the Lord swore and will not repent:  You are priest forever, according to the Order of Melchisedek”.
+
+123.	The jewish priests were not kings and priests and the Kings were not Priests.  Melchisedek the KING of SALEM (the Pagan city) was at the same time PRIEST and not jewish priest, but HE, the Priest of the Highest God, fully and totally foreign to the jewish religion of the patriarchs, was who took BREAD AND WINE, and ABRAHAM received the act of the Transubstantiation, as well as received the Sacred Word of IAO, at the delivery of the tithes.  
+
+124.	The Pagan Priest, Priest and King of the pagan city of Salem, being GREATER than Abraham, blessed this one, fulfilling so the scripture:  “It belongs the eldest to bless the youngest”.
+
+125.	Patriarch Abraham learned from the Priest of the Highest God, from MELCHISEDEK, the divine and esoteric wisdom that transmitted to his people.  Naturally that all this wisdom is found transcribed in the bible books, but unfortunately for the jews and “christians”, as well as for the rest of “believers”, all esoteric Wisdom of Melchisedek, is found in code and the code only possess the INITIATED in the MYSTERIES OF FIRE and of the LIGHT, according to the ORDER OF MELCHISEDEK.
+
+126.	The tithes that Abraham gave the PRIEST AND KING are symbolic, as in them, the blessed name is hidden.
+
+10 = 10
+1 + 2 + 3 + 4 =  10
+1 + 2 + 3 + 4 =  10 = 10
+
+127.	10 embraces the sum of all things, the whole.
+All extends itself to the Unity, to the ONE.
+The alpha and OMEGA is the A.  I.A.O.
+	I.A.O.  =  I.A.O.
+
+128.	I.A.O. constitutes the breath of life placed between the I which is the erected principle masculine and the oval form of the O, which is the feminine principle.  This is the SOLAR ARCANUM, or REAL ARCANUM, taught by MELCHISEDEK.
+
+129.	The whole biblical science and wisdom synthesizes itself in the Mystical Decade, in the I.A.O, in the Great Real Arcanum taught by MELCHISEDEK, the Priest of the Highest God, for the constitution of CHILDREN OF THE SUN, of the SOLAR CHRISTUS, and thus form with CHRISTIFIED men and women, the SOLAR CITY, composed by SOLAR men and women that have lived CHRIST teachings, synthesized in the CHRISTIFYING values.
+
+LIFE, DEATH, LOVE, LIBERTY, WISDOM.
