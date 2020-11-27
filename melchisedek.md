@@ -8,17 +8,20 @@ In those ancient times, the GREAT MASTER publicly taugth **the narrow path** con
 
 In the dark history of human kind, lost in the Lemuria's fog, The Master taught the Holy Sacrament's Sacrifice of Eucharist, the BREAD and WINE'S partition.  
 * The **BREAD** as LIFE's symbol regenerated in the **SEED**.
-* And the **WINE**, _christic_ knowledge's symbol, made by **TRANSMUTATION**.  
+* And the **WINE**, _christic_ knowledge symbol, made by **TRANSMUTATION**.  
 
 MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, became VISHNU'S FIRST AVATAR and was known in all the orb as the DIVINE SNAKE over whose SEVEN HEADS flame as igneous flames the SACRED VOWELS contained in OANNES.  
 
 ![OANNES](/assets/img/oannes_1.jpg)  
+Oannes
 
 ![OANNES](/assets/img/oannes_2.jpg)  
+Oannes
 
 OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of the sea, from the august waters' abyss. 
 
 ![VISHNU](/assets/img/vishnu.jpg)  
+Vishnu
 
 ## Excerpt from the Book
 ## The Rosicrucian Om Order. The Order Of Melchisedec
@@ -30,14 +33,17 @@ OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of t
 103\.	OANNES and his real BEING, THE GREAT MELCHISEDEK, also conferred SUBLIME INITIATION to the Patriarch ABRAHAM.
 
 ![DAGON](/assets/img/dagon.jpg)  
+Dagon
 
 104\.	After a bloody battle in which Abraham came out victorious; he prostrated himself full of sublime adoration before MELCHISEDEK, who communicated to him the unutterable Secret of the SOLAR ARCANUM and also taught him the PARTITION OF BREAD AND WINE.  Like such is found it transcribed in the book of Genesis.
 
 ![DAGON](/assets/img/dagon_sac.jpg)  
+Dagon
 
 105\.	The Great PATRIARCH ABRAHAM received the INITIATION there in the far away land of UR, in Caldea, and it was the GREAT BEING, the PRIEST OF THE HIGHEST GOD, MELCHISEDEK, who next to the Venerable SANAT KUMARA, accepted ABRAHAM  INTO THEIR MAJESTIC TEMPLES.  Abraham is a Rosicrucian Priest.
 
 ![DAGON](/assets/img/dagon_color.jpg)  
+Dagon
 
 106\.	OANNES, Bodhisatwa of the lord MELCHISEDEK, continued his long work through time, organizing and reorganizing the ORDER OF MELCHISEDEK.  JESUS, THE CARPENTER’S SON, had also the High honor of entering the ORDER OF MELCHISEDEK in past times and attained to assimilate in himself all the fire and the light of the CROSS and of the ROSE, becoming he himself a LIVING ROSICRUCIAN.
 
