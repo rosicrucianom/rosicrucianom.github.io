@@ -10,7 +10,7 @@ In the dark history of human kind, lost in the Lemuria's fog, The Master taught 
 * The **BREAD** as LIFE's symbol regenerated in the **SEED**.
 * And the **WINE**, _christic_ knowledge symbol, made by **TRANSMUTATION**.  
 
-MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, became VISHNU'S FIRST AVATAR and was known in all the orb as the DIVINE SNAKE over whose SEVEN HEADS flame as igneous flames the SACRED VOWELS contained in OANNES.  
+MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, became VISHNU'S FIRST AVATAR, and was known in all the orb as the DIVINE SNAKE, over whose SEVEN HEADS the SACRED VOWELS contained in OANNES burn as igneous flames.  
 
 OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of the sea, from the august waters' abyss. 
 
@@ -23,11 +23,32 @@ OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of t
 
 ![VISHNU](/assets/img/vishnu.jpg)  
 
+The HARI-PURANA and many other India's sacred books clearly affirm that VISHNU took the figure of a FISH with human head in order to rescue the VEDAS lost in the Flood, and he, OANNES, VISHNU'S AVATARA made the INITIATED VISVAMITRA and his family, build the ARC or ARGHA which allowed them to survive the cataclism, and OANNES was with the survivors till they got their CHRISTIFICATION.  
+
+OANNES kept his figure of a FISH with human head all the time and each day at dusk, he submerged to the bottom the water till the next dawn.  
+This allegory of VISHNU'S AVATARA, OANNES, can be seen in RAMA GOD'S TEMPLE as a figure of a man coming out of a fish's mouth with the VEDAS in his hands, after recovering them from the flood waters.  
+
+This version can also be found in the old CHALDAIC'S manuscripts where in UR's homeland, OANNES was known by the name of DAGON.  
+
 ### Dagon
 
 ![DAGON](/assets/img/dagon.jpg)
 ![DAGON](/assets/img/dagon_sac.jpg)
 ![DAGON](/assets/img/dagon_color.jpg)  
+
+DAGON, or OANNES is the same KNEPH from Ancient Egypt who rests over a SEVEN-HEADS SNAKE.  
+
+In the Egyptian Mysteries, THAT, which is the ABSOLUTE, is symbolically expressed by beautiful low relief of sublime art showing a volute SNAKE around a vessel with water, inclined towards the seven-sacred-letters crowned head and in actitude of fertilizing them with its breath.  
+
+The _Hidden Wisdom_, the _ROSE CROSS Wisdom_, is the _Snake's Wisdom_, is the **SACRED SNAKE KUNDALINI** who activates the _seven shakras_, CHRISTIFY the _seven bodies_, known by the INITIATES and the MASTERS of GREAT LAKE's, nowadays called TITIKAKA.  
+
+OANNES as VISHNU's AVATARA, COSMIC CHRIST's AVATARA, arises majesticly from the lake's crystal waters in the great shape of a seven headed Snake with the flaming _igneous letters_ of the _hidden name_ over its head.  
+
+These letters are manifested in **A, E, I, O, U, M, S**, the carried out _OM verb_, and OANNES who's known by the Earth of Sun's inhabitants as KONTICI WIRACOCHA.
+
+### Representation of KON TICI WIRACOCHA on The Gate of The Sun
+
+![WIRACOCHA](/assets/img/wiracocha.jpg)
 
 ## Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedec"
 
