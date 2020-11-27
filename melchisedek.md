@@ -4,28 +4,28 @@ The HOLY GOD'S HIGHER PRIEST, our venerable and great Master MELCHISEDEK is well
 
 All MELCHISEDEK'S _mystery_ is related with the man's origin and fall in the Eden and more precisely, in his intense work to make the ANTIQUE LEMURS come back to the HOLY MOTHER's womb. The GREAT MASTER organized the first ROSICRUCIAN ORDER and right there, between the Lemuria habitants who fell in the horrible bad habit of _fornication_, _materialism_ and _egocentrism_, the GREAT COSMIC DAY arose for the first time in that antique Mysteries School: THE ROSICRUCIAN ORDER.  
 
-In those ancient times, the GREAT MASTER taugth publicly **the narrow path** conducing to LIFE, taugth the VALUES of LOVE, DEATH, LIFE, THE AWAKENING, and making THE FATHER'S WILL, of I.A.O., he was the one who taught the deep mystery the “GREATEST GOD”, IAO, who was known back then by the name of JANO, the two faced God whose belt carries the keys of heaven.  
+In those ancient times, the GREAT MASTER publicly taugth **the narrow path** conducing to LIFE, taugth the VALUES of LOVE, DEATH, LIFE, of THE AWAKENING and realizing THE FATHER'S WILL, of I.A.O. He was the one who taught the deep mystery of the "GREATEST GOD", IAO, who back then was known by the name of JANO, the two faced God whose belt carries the keys of heaven.  
 
 In the dark history of human kind, lost in the Lemuria's fog, The Master taught the Holy Sacrament's Sacrifice of Eucharist, the BREAD and WINE'S partition.  
-* The BREAD as life's symbol regenerated in the seed.
-* And the WINE, christic knowledge's symbol and made by **TRANSMUTATION**.  
+* The **BREAD** as LIFE's symbol regenerated in the **SEED**.
+* And the **WINE**, _christic_ knowledge's symbol, made by **TRANSMUTATION**.  
 
 MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, became VISHNU'S FIRST AVATAR and was known in all the orb as the DIVINE SNAKE over whose SEVEN HEADS flame as igneous flames the SACRED VOWELS contained in OANNES.  
 
-![VISHNU](/assets/img/vishnu.jpg)  
+![OANNES](/assets/img/oannes_1.jpg)  
+
+![OANNES](/assets/img/oannes_2.jpg)  
 
 OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of the sea, from the august waters' abyss. 
+
+![VISHNU](/assets/img/vishnu.jpg)  
 
 ## Excerpt from the Book
 ## The Rosicrucian Om Order. The Order Of Melchisedec
 
 101\.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
 
-![OANNES](/assets/img/oannes_1.jpg)  
-
 102\.	OANNES blossomed with all splendor of the Father’s Sapience there in the ancient Caldea, where he had many disciples that elevated themselves to the NIRVANA ineffable regions; others kept their christened bodies full of life until they assimilated into themselves the elixir of IMMORTALITY.
-
-![OANNES](/assets/img/oannes_2.jpg)  
 
 103\.	OANNES and his real BEING, THE GREAT MELCHISEDEK, also conferred SUBLIME INITIATION to the Patriarch ABRAHAM.
 
