@@ -1,6 +1,6 @@
 # Who is The V. L. Melchisedek?
 
-The HOLY GOD'S HIGHER PRIEST, our venerable and great Master MELCHISEDEK is well-known by the countries and people he went with the living **CROSS and ROSE**, and there're many millenial traditions which recognize him as the **Bread and Wine's** carrier, sucessfuly emerged from the LIFE'S WATERS.  
+The HOLY GOD'S HIGHER PRIEST, our venerable and great Master MELCHISEDEK is well-known by the countries and people he went with the living **CROSS and ROSE**, and there are many millenial traditions which recognize him as the **Bread and Wine's** carrier, sucessfuly emerged from the LIFE'S WATERS.  
 
 All MELCHISEDEK'S _mystery_ is related with the man's origin and fall in the Eden and more precisely, in his intense work to make the ANTIQUE LEMURS come back to the HOLY MOTHER's womb. The GREAT MASTER organized the first ROSICRUCIAN ORDER and right there, between the Lemuria habitants who fell in the horrible bad habit of _fornication_, _materialism_ and _egocentrism_, the GREAT COSMIC DAY arose for the first time in that antique Mysteries School: THE ROSICRUCIAN ORDER.  
 
