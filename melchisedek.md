@@ -2,7 +2,7 @@
 
 The HOLY GOD'S HIGHER PRIEST, our venerable and great Master MELCHISEDEK is well-known by the countries and people he went with with the living **CROSS and ROSE**, and there are many millenial traditions which recognize him as the **Bread and Wine's** carrier, sucessfuly emerged from the LIFE'S WATERS.  
 
-All MELCHISEDEK'S _mystery_ is related with the man's origin and fall in the Eden and, more precisely, in his intense work to make the ANTIQUE LEMURS come back to the HOLY MOTHER's womb. The GREAT MASTER organized the first ORDER of the ROSE and the CROSS and right there, between the Lemuria habitants, who fell in the horrible bad habit of _fornication_, _materialism_ and _egocentrism_, for the first time the GREAT COSMIC DAY arose in the antique School of Mysteries of _**THE ROSICRUCIAN ORDER**_.  
+All MELCHISEDEK'S _mystery_ is related with the man's origin and fall in the Eden and, more precisely, in his intense work to make the ANTIQUE LEMURS come back to the HOLY MOTHER's womb. The GREAT MASTER organized the first ORDER of the CROSS and the ROSE and right there, between the Lemuria habitants, who fell in the horrible bad habit of _fornication_, _materialism_ and _egocentrism_, for the first time the GREAT COSMIC DAY arose in the antique School of Mysteries of _**THE ROSICRUCIAN ORDER**_.  
 
 In those ancient times, the GREAT MASTER publicly taugth **the narrow path** conducing to LIFE, taugth the VALUES of LOVE, DEATH, LIFE, of THE AWAKENING and realizing THE FATHER'S WILL, of I.A.O. He was the one who taught the deep mystery of the "GREATEST GOD", IAO, who back then was known by the name of JANO, the two faced God whose belt carries the keys of heaven.  
 
@@ -48,7 +48,9 @@ These letters are manifested in **A, E, I, O, U, M, S**, the carried out _OM ver
 ![WIRACOCHA](/assets/img/wiracocha.jpg)  
 _(Representation of KON TICI WIRACOCHA on The Gate of The Sun)_
 
-## Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek"
+## The Order Of Melchisedek
+
+_(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
 
 101\.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
 
