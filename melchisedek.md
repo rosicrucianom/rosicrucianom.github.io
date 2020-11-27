@@ -43,7 +43,7 @@ The _Hidden Wisdom_, the _ROSE CROSS Wisdom_, is the _Snake's Wisdom_, is the **
 
 OANNES as VISHNU's AVATARA, COSMIC CHRIST's AVATARA, arises majesticly from the lake's crystal waters in the great shape of a seven headed Snake with the flaming _igneous letters_ of the _hidden name_ over its head.  
 
-These letters are manifested in **A, E, I, O, U, M, S**, the carried out _OM verb_, and OANNES who's known by the Earth of Sun's inhabitants as KONTICI WIRACOCHA.
+These letters are manifested in **I, E, O, U, A, M, S**, the carried out _OM verb_, and OANNES who's known by the Earth of Sun's inhabitants as KONTICI WIRACOCHA.
 
 ![WIRACOCHA](/assets/img/wiracocha.jpg)  
 _(Representation of KON TICI WIRACOCHA on The Gate of The Sun)_
