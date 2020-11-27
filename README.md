@@ -1,12 +1,12 @@
-![The Rosicrucian Om Order](/assets/img/rosicrucianomorder_800x744.png)
-
-The Rosicrucians' origin, august members of the **Great White Fraternity**, faithful apostles of the Rosicrucian Order, fade in the centuries´ night.  
+The Rosicrucians' origin, august members of the **Great White Fraternity**, faithful apostles of the Rosicrucian Order, fade in the night of the centuries.  
 
 The Rosicrucians made their appearance in all ages and all countries, under different denominations, shined only for a short instant and then disappeared to keep shinning even more, in the _unknown depths of the higher cosmos_.  
 
 The wise of Ancient India, many centuries before Christianity, had the Holy CROSS and warshiped it as an AVATAR or CHRISTIFICATED symbol by which God, the great being, showed.  
 
 All the Initiates in the CROSS' holy science had as maximum achieved the blooming of the Centre Rose which was placed conscientiously in the precise spot between the joint of the two logs.  
+
+![The Rosicrucian Om Order](/assets/img/rosicrucianomorder_800x744.png)
 
 The Great Mystical Rose means the Great Work's total magnificent achievement. The full _Christification_ of the Master, the Great GURUJI.  
 
