@@ -2,15 +2,27 @@
 
 101\.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
 
+![OANNES](/assets/img/oannes_1.jpg)  
+
 102\.	OANNES blossomed with all splendor of the Father’s Sapience there in the ancient Caldea, where he had many disciples that elevated themselves to the NIRVANA ineffable regions; others kept their christened bodies full of life until they assimilated into themselves the elixir of IMMORTALITY.
+
+![OANNES](/assets/img/oannes_2.jpg)  
 
 103\.	OANNES and his real BEING, THE GREAT MELCHISEDEK, also conferred SUBLIME INITIATION to the Patriarch ABRAHAM.
 
+![DAGON](/assets/img/dagon.jpg)  
+
 104\.	After a bloody battle in which Abraham came out victorious; he prostrated himself full of sublime adoration before MELCHISEDEK, who communicated to him the unutterable Secret of the SOLAR ARCANUM and also taught him the PARTITION OF BREAD AND WINE.  Like such is found it transcribed in the book of Genesis.
+
+![DAGON](/assets/img/dagon_sac.jpg)  
 
 105\.	The Great PATRIARCH ABRAHAM received the INITIATION there in the far away land of UR, in Caldea, and it was the GREAT BEING, the PRIEST OF THE HIGHEST GOD, MELCHISEDEK, who next to the Venerable SANAT KUMARA, accepted ABRAHAM  INTO THEIR MAJESTIC TEMPLES.  Abraham is a Rosicrucian Priest.
 
+![DAGON](/assets/img/dagon_color.jpg)  
+
 106\.	OANNES, Bodhisatwa of the lord MELCHISEDEK, continued his long work through time, organizing and reorganizing the ORDER OF MELCHISEDEK.  JESUS, THE CARPENTER’S SON, had also the High honor of entering the ORDER OF MELCHISEDEK in past times and attained to assimilate in himself all the fire and the light of the CROSS and of the ROSE, becoming he himself a LIVING ROSICRUCIAN.
+
+![DAGON](/assets/img/vishnu.jpg)  
 
 107\.	JESUS THE CHRIST is, according to the ORDER OF MELCHISEDEK, one of the most exalted ROSICRUCIAN MASTERS.
 
