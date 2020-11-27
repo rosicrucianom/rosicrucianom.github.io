@@ -14,20 +14,22 @@ MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, be
 
 OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of the sea, from the august waters' abyss. 
 
+### Oannes
+
 ![OANNES](/assets/img/oannes_2.jpg)
 ![OANNES](/assets/img/oannes_1.jpg)  
-Oannes
+
+### Vishnu
 
 ![VISHNU](/assets/img/vishnu.jpg)  
-Vishnu
+
+### Dagon
 
 ![DAGON](/assets/img/dagon.jpg)
 ![DAGON](/assets/img/dagon_sac.jpg)
 ![DAGON](/assets/img/dagon_color.jpg)  
-Dagon
 
-## Excerpt from the Book
-## The Rosicrucian Om Order. The Order Of Melchisedec
+### Excerpt from the Book "The Rosicrucian Om Order. The Order Of Melchisedec"
 
 101\.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
 
