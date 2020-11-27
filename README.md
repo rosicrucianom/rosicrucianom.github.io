@@ -44,6 +44,8 @@ It´s in the ROSE and in the CROSS where the secret of the SOLAR MYSTERY, that d
 
 Only fertilizing our seminal waters with the spirit's fire, we could achieve our sublime Christification.  
 
+![Sunset at The Sea](/assets/img/sunset_sea_800x600.jpg)
+
 It's the Spirit who, using its expression vehicle, ferilizes the seminal waters with its solar fire, and so it creates Christify bodies, solar bodies which lead us to the uncreated light, to the absolute.  
 
 This knowledge embraces, orbits out of time and eternity, and goes further from the mind and the Budhas.  
@@ -52,4 +54,4 @@ The Rosicrucian Order has its origin in the depths of the absolute's uncreated l
 
 The Rosicrucian Order is Universal.  
 
-![Sunset at The Sea](/assets/img/sunset_sea_800x600.jpg)
+
