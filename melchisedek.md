@@ -115,7 +115,7 @@ All extends itself to the Unity, to the ONE.
 The alpha and OMEGA is the A.  I.A.O.  
 I.A.O.  =  **I.A.O.**  
 
-128\.	I.A.O. constitutes the breath of life placed between the I which is the erected principle masculine and the oval form of the O, which is the feminine principle.  This is the SOLAR ARCANUM, or REAL ARCANUM, taught by MELCHISEDEK.
+128\.	_I.A.O. constitutes the breath of life placed between the I which is the erected principle masculine and the oval form of the O, which is the feminine principle.  This is the SOLAR ARCANUM, or REAL ARCANUM, taught by MELCHISEDEK._
 
 129\.	The whole biblical science and wisdom synthesizes itself in the Mystical Decade, in the I.A.O, in the Great Real Arcanum taught by MELCHISEDEK, the Priest of the Highest God, for the constitution of CHILDREN OF THE SUN, of the SOLAR CHRISTUS, and thus form with CHRISTIFIED men and women, the SOLAR CITY, composed by SOLAR men and women that have lived CHRIST teachings, synthesized in the CHRISTIFYING values.
 
