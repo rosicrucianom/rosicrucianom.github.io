@@ -14,14 +14,10 @@ MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, be
 
 OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of the sea, from the august waters' abyss. 
 
-### Oannes
+![OANNES](/assets/img/oannes_2.jpg)  
+![OANNES](/assets/img/oannes_1.jpg) Oannes  
 
-![OANNES](/assets/img/oannes_2.jpg)
-![OANNES](/assets/img/oannes_1.jpg)  
-
-### Vishnu
-
-![VISHNU](/assets/img/vishnu.jpg)  
+![VISHNU](/assets/img/vishnu.jpg) Vishnu  
 
 The HARI-PURANA and many other India's sacred books clearly affirm that VISHNU took the figure of a FISH with human head in order to rescue the VEDAS lost in the Flood, and he, OANNES, VISHNU'S AVATARA made the INITIATED VISVAMITRA and his family, build the ARC or ARGHA which allowed them to survive the cataclism, and OANNES was with the survivors till they got their CHRISTIFICATION.  
 
@@ -30,11 +26,9 @@ This allegory of VISHNU'S AVATARA, OANNES, can be seen in RAMA GOD'S TEMPLE as a
 
 This version can also be found in the old CHALDAIC'S manuscripts where in UR's homeland, OANNES was known by the name of DAGON.  
 
-### Dagon
-
 ![DAGON](/assets/img/dagon.jpg)
 ![DAGON](/assets/img/dagon_sac.jpg)
-![DAGON](/assets/img/dagon_color.jpg)  
+![DAGON](/assets/img/dagon_color.jpg) Dagon  
 
 DAGON, or OANNES is the same KNEPH from Ancient Egypt who rests over a SEVEN-HEADS SNAKE.  
 
@@ -46,9 +40,7 @@ OANNES as VISHNU's AVATARA, COSMIC CHRIST's AVATARA, arises majesticly from the 
 
 These letters are manifested in **A, E, I, O, U, M, S**, the carried out _OM verb_, and OANNES who's known by the Earth of Sun's inhabitants as KONTICI WIRACOCHA.
 
-### Representation of KON TICI WIRACOCHA on The Gate of The Sun
-
-![WIRACOCHA](/assets/img/wiracocha.jpg)
+![WIRACOCHA](/assets/img/wiracocha.jpg) Representation of KON TICI WIRACOCHA on The Gate of The Sun  
 
 ## Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek"
 
