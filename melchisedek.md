@@ -60,7 +60,7 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
 
 104\.	After a bloody battle in which Abraham came out victorious; he prostrated himself full of sublime adoration before MELCHISEDEK, who communicated to him the unutterable Secret of the SOLAR ARCANUM and also taught him the PARTITION OF BREAD AND WINE.  Like such is found it transcribed in the book of Genesis.
 
-![Bread_Wine_MELQUISEDEC](/assets/img/bread_wine_melquisedec.jpg)  
+![Bread_Wine_MELCHISEDEK](/assets/img/bread_wine_melquisedec.jpg)  
 
 105\.	The Great PATRIARCH ABRAHAM received the INITIATION there in the far away land of UR, in Caldea, and it was the GREAT BEING, the PRIEST OF THE HIGHEST GOD, MELCHISEDEK, who next to the Venerable SANAT KUMARA, accepted ABRAHAM  INTO THEIR MAJESTIC TEMPLES.  Abraham is a Rosicrucian Priest.
 
