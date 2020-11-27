@@ -1,7 +1,5 @@
 # V. L. Melchisedek
 
-
-
 101\.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
 
 102\.	OANNES blossomed with all splendor of the Father’s Sapience there in the ancient Caldea, where he had many disciples that elevated themselves to the NIRVANA ineffable regions; others kept their christened bodies full of life until they assimilated into themselves the elixir of IMMORTALITY.
@@ -58,10 +56,10 @@
 1 + 2 + 3 + 4 =  10  
 1 + 2 + 3 + 4 =  10 = 10  
 
-127\.	10 embraces the sum of all things, the whole.
-All extends itself to the Unity, to the ONE.
+127\.	10 embraces the sum of all things, the whole.  
+All extends itself to the Unity, to the ONE.  
 The alpha and OMEGA is the A.  I.A.O.  
-	I.A.O.  =  *I.A.O.*  
+I.A.O.  =  **I.A.O.**  
 
 128\.	I.A.O. constitutes the breath of life placed between the I which is the erected principle masculine and the oval form of the O, which is the feminine principle.  This is the SOLAR ARCANUM, or REAL ARCANUM, taught by MELCHISEDEK.
 
