@@ -46,7 +46,7 @@ Only fertilizing our seminal waters with the spirit's fire, we could achieve our
 
 ![Sunset at The Sea](/assets/img/sunset_sea_800x600.jpg)
 
-It's the Spirit who, using its expression vehicle, ferilizes the seminal waters with its solar fire, and so it creates Christify bodies, solar bodies which lead us to the uncreated light, to the absolute.  
+It's the Spirit who, using its expression vehicle, ferilizes the seminal waters with its solar fire, and so it creates **Christified bodies**, solar bodies which lead us to the uncreated light, to the absolute.  
 
 This knowledge embraces, orbits out of time and eternity, and goes further from the mind and the Budhas.  
 
