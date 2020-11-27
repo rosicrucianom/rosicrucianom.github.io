@@ -60,6 +60,8 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
 
 104\.	After a bloody battle in which Abraham came out victorious; he prostrated himself full of sublime adoration before MELCHISEDEK, who communicated to him the unutterable Secret of the SOLAR ARCANUM and also taught him the PARTITION OF BREAD AND WINE.  Like such is found it transcribed in the book of Genesis.
 
+![Bread_Wine_MELQUISEDEC](/assets/img/bread_wine_melquisedec.jpg)  
+
 105\.	The Great PATRIARCH ABRAHAM received the INITIATION there in the far away land of UR, in Caldea, and it was the GREAT BEING, the PRIEST OF THE HIGHEST GOD, MELCHISEDEK, who next to the Venerable SANAT KUMARA, accepted ABRAHAM  INTO THEIR MAJESTIC TEMPLES.  Abraham is a Rosicrucian Priest.
 
 106\.	OANNES, Bodhisatwa of the lord MELCHISEDEK, continued his long work through time, organizing and reorganizing the ORDER OF MELCHISEDEK.  JESUS, THE CARPENTER’S SON, had also the High honor of entering the ORDER OF MELCHISEDEK in past times and attained to assimilate in himself all the fire and the light of the CROSS and of the ROSE, becoming he himself a LIVING ROSICRUCIAN.
@@ -115,7 +117,7 @@ All extends itself to the Unity, to the ONE.
 The alpha and OMEGA is the A.  I.A.O.  
 I.A.O.  =  **I.A.O.**  
 
-128\.	_I.A.O. constitutes the breath of life placed between the I which is the erected principle masculine and the oval form of the O, which is the feminine principle.  This is the SOLAR ARCANUM, or REAL ARCANUM, taught by MELCHISEDEK._
+**128\.	I.A.O. constitutes the breath of life placed between the I which is the erected principle masculine and the oval form of the O, which is the feminine principle.  This is the SOLAR ARCANUM, or REAL ARCANUM, taught by MELCHISEDEK.**
 
 129\.	The whole biblical science and wisdom synthesizes itself in the Mystical Decade, in the I.A.O, in the Great Real Arcanum taught by MELCHISEDEK, the Priest of the Highest God, for the constitution of CHILDREN OF THE SUN, of the SOLAR CHRISTUS, and thus form with CHRISTIFIED men and women, the SOLAR CITY, composed by SOLAR men and women that have lived CHRIST teachings, synthesized in the CHRISTIFYING values.
 
