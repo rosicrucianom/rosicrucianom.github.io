@@ -4,7 +4,7 @@ The teachings given by the V.M. Om Yeo Wams Om, embraces a series of writings, c
 
 The books that are published by V.M. Om Yeo Wams Om - Dr. Juan Santa Cruz Torrez.  
 
-### The Rosicrucian Om Order. The Order Of Melchisedec
+### The Rosicrucian Om Order. The Order Of Melchisedek
 
 ![Book](/assets/img/book_orc_om.jpg)  
 La Orden Rosa Cruz. El Orden De Melquisedec  
