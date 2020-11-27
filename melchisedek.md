@@ -12,16 +12,18 @@ In the dark history of human kind, lost in the Lemuria's fog, The Master taught 
 
 MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, became VISHNU'S FIRST AVATAR, and was known in all the orb as the DIVINE SNAKE, over whose SEVEN HEADS the SACRED VOWELS contained in OANNES burn as igneous flames.  
 
+![OANNES](/assets/img/oannes_2.jpg)  
+_(Oannes)_  
+
 OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of the sea, from the august waters' abyss. 
 
-![OANNES](/assets/img/oannes_2.jpg)  
 ![OANNES](/assets/img/oannes_1.jpg)  
-_Oannes_
-
-![VISHNU](/assets/img/vishnu.jpg)  
-_Vishnu_
+_(Oannes)_  
 
 The HARI-PURANA and many other India's sacred books clearly affirm that VISHNU took the figure of a FISH with human head in order to rescue the VEDAS lost in the Flood, and he, OANNES, VISHNU'S AVATARA made the INITIATED VISVAMITRA and his family, build the ARC or ARGHA which allowed them to survive the cataclism, and OANNES was with the survivors till they got their CHRISTIFICATION.  
+
+![VISHNU](/assets/img/vishnu.jpg)  
+_(Vishnu)_
 
 OANNES kept his figure of a FISH with human head all the time and each day at dusk, he submerged to the bottom the water till the next dawn.  
 This allegory of VISHNU'S AVATARA, OANNES, can be seen in RAMA GOD'S TEMPLE as a figure of a man coming out of a fish's mouth with the VEDAS in his hands, after recovering them from the flood waters.  
@@ -31,7 +33,7 @@ This version can also be found in the old CHALDAIC'S manuscripts where in UR's h
 ![DAGON](/assets/img/dagon.jpg)
 ![DAGON](/assets/img/dagon_sac.jpg)
 ![DAGON](/assets/img/dagon_color.jpg)  
-_Dagon_
+_(Dagon)_  
 
 DAGON, or OANNES is the same KNEPH from Ancient Egypt who rests over a SEVEN-HEADS SNAKE.  
 
@@ -44,7 +46,7 @@ OANNES as VISHNU's AVATARA, COSMIC CHRIST's AVATARA, arises majesticly from the 
 These letters are manifested in **A, E, I, O, U, M, S**, the carried out _OM verb_, and OANNES who's known by the Earth of Sun's inhabitants as KONTICI WIRACOCHA.
 
 ![WIRACOCHA](/assets/img/wiracocha.jpg)  
-_Representation of KON TICI WIRACOCHA on The Gate of The Sun_
+_(Representation of KON TICI WIRACOCHA on The Gate of The Sun)_
 
 ## Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek"
 
