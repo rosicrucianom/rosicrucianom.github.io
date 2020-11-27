@@ -1,20 +1,20 @@
 # Who is the V. L. Melchisedek?
 
-The HOLY GOD´S HIGHER PRIEST, our venerable and great Master MELCHISEDEK is well-known by the countries and people he went with the living **CROSS and ROSE**, and there´re many millenial traditions which recognize him as the **Bread and Wine´s** carrier, sucessfuly emerged from the LIFE´S WATERS.  
+The HOLY GOD'S HIGHER PRIEST, our venerable and great Master MELCHISEDEK is well-known by the countries and people he went with the living **CROSS and ROSE**, and there're many millenial traditions which recognize him as the **Bread and Wine's** carrier, sucessfuly emerged from the LIFE'S WATERS.  
 
-All MELCHISEDEK´S _mystery_ is related with the man's origin and fall in the Eden and more precisely, in his intense work to make the ANTIQUE LEMURS come back to the HOLY MOTHER's womb. The GREAT MASTER organized the first ROSICRUCIAN ORDER and right there, between the Lemuria habitants who fell in the horrible bad habit of _fornication_, _materialism_ and _egocentrism_, the GREAT COSMIC DAY arose for the first time in that antique Mysteries School: THE ROSICRUCIAN ORDER.  
+All MELCHISEDEK'S _mystery_ is related with the man's origin and fall in the Eden and more precisely, in his intense work to make the ANTIQUE LEMURS come back to the HOLY MOTHER's womb. The GREAT MASTER organized the first ROSICRUCIAN ORDER and right there, between the Lemuria habitants who fell in the horrible bad habit of _fornication_, _materialism_ and _egocentrism_, the GREAT COSMIC DAY arose for the first time in that antique Mysteries School: THE ROSICRUCIAN ORDER.  
 
-In those ancient times, the GREAT MASTER taugth publicly **the narrow path** conducing to LIFE, taugth the VALUES of LOVE, DEATH, LIFE, THE AWAKENING, and making THE FATHER´S WILL, of I.A.O., he was the one who taught the deep mystery the “GREATEST GOD”, IAO, who was known back then by the name of JANO, the two faced God whose belt carries the keys of heaven.  
+In those ancient times, the GREAT MASTER taugth publicly **the narrow path** conducing to LIFE, taugth the VALUES of LOVE, DEATH, LIFE, THE AWAKENING, and making THE FATHER'S WILL, of I.A.O., he was the one who taught the deep mystery the “GREATEST GOD”, IAO, who was known back then by the name of JANO, the two faced God whose belt carries the keys of heaven.  
 
-In the dark history of human kind, lost in the Lemuria´s fog, The Master taught the Holy Sacrament´s Sacrifice of Eucharist, the BREAD and WINE´S partition.  
-* The BREAD as life´s symbol regenerated in the seed.
-* And the WINE, christic knowledge´s symbol and made by **TRANSMUTATION**.  
+In the dark history of human kind, lost in the Lemuria's fog, The Master taught the Holy Sacrament's Sacrifice of Eucharist, the BREAD and WINE'S partition.  
+* The BREAD as life's symbol regenerated in the seed.
+* And the WINE, christic knowledge's symbol and made by **TRANSMUTATION**.  
 
-MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, became VISHNU´S FIRST AVATAR and was known in all the orb as the DIVINE SNAKE over whose SEVEN HEADS flame as igneous flames the SACRED VOWELS contained in OANNES.  
+MELCHISEDEK (MELQUISEDEC), the Supreme Great MASTER of the ROSICRUCIAN ORDER, became VISHNU'S FIRST AVATAR and was known in all the orb as the DIVINE SNAKE over whose SEVEN HEADS flame as igneous flames the SACRED VOWELS contained in OANNES.  
 
 ![VISHNU](/assets/img/vishnu.jpg)  
 
-OANNES is the FISH MAN, the SEMI-GOD, VISHNU´S FIRST AVATARA, who comes out of the sea, from the august waters´ abyss. 
+OANNES is the FISH MAN, the SEMI-GOD, VISHNU'S FIRST AVATARA, who comes out of the sea, from the august waters' abyss. 
 
 ## Excerpt from the Book
 ## The Rosicrucian Om Order. The Order Of Melchisedec
