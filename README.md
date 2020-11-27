@@ -51,3 +51,5 @@ This knowledge embraces, orbits out of time and eternity, and goes further from 
 The Rosicrucian Order has its origin in the depths of the absolute's uncreated light.  
 
 The Rosicrucian Order is Universal.  
+
+![Sunset at The Sea](/assets/img/sunset_sea_800x600.jpg)
