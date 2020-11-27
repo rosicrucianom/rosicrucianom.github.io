@@ -1,4 +1,8 @@
-101.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
+# V. L. Melchisedek
+
+
+
+101\.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
 
 102.	OANNES blossomed with all splendor of the Father’s Sapience there in the ancient Caldea, where he had many disciples that elevated themselves to the NIRVANA ineffable regions; others kept their christened bodies full of life until they assimilated into themselves the elixir of IMMORTALITY.
 
