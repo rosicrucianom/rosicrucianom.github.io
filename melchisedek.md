@@ -106,16 +106,16 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
 
 125\.	Patriarch Abraham learned from the Priest of the Highest God, from MELCHISEDEK, the divine and esoteric wisdom that transmitted to his people.  Naturally that all this wisdom is found transcribed in the bible books, but unfortunately for the jews and “christians”, as well as for the rest of “believers”, all esoteric Wisdom of Melchisedek, is found in code and the code only possess the INITIATED in the MYSTERIES OF FIRE and of the LIGHT, according to the ORDER OF MELCHISEDEK.
 
-126\.	The tithes that Abraham gave the PRIEST AND KING are symbolic, as in them, the blessed name is hidden.
+126\.	The tithes that Abraham gave the PRIEST AND KING are symbolic, as in them, the blessed name is hidden.  
 
-10 = 10  
-1 + 2 + 3 + 4 =  10  
-1 + 2 + 3 + 4 =  10 = 10  
+10 = IO  
+1 + 2 + 3 + 4 = 10  
+1 + 2 + 3 + 4 = 10 = IO  
 
 127\.	10 embraces the sum of all things, the whole.  
 All extends itself to the Unity, to the ONE.  
-The alpha and OMEGA is the A.  I.A.O.  
-I.A.O.  =  **I.A.O.**  
+The ALPHA and OMEGA is the A. 1.A.0.  
+1.A.0.  =  **I.A.O.**  
 
 **128\.	I.A.O. constitutes the breath of life placed between the I which is the erected principle masculine and the oval form of the O, which is the feminine principle.  This is the SOLAR ARCANUM, or REAL ARCANUM, taught by MELCHISEDEK.**
 
