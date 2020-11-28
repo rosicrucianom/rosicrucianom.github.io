@@ -40,7 +40,7 @@ _(Excerpts from The Book "Alchemic Wedding".)_
 
 20\.  Sexual functions present the most exquisite life’s delights but, lamentably, unconscious people do not enjoy life but vices. 
 
-
+![Anchors at Breakwater](/assets/img/breakwater_450x600.jpg)
 
 24\.  How could a fornication vice slave enjoy life…?
 
