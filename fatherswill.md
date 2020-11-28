@@ -14,9 +14,9 @@
 
 7\.	The FATHER walks the Path of the Rose and the CROSS, and not so the EGO.
 
-8\.	If the disciple is really anxious to reach for the INITIATION and to culminate in CHRISTENING, he must from the beginning come to the one who dwells in secret and let the FATHER’S WILL be done.
-
 ![Blessing](/assets/img/blessing.jpg)
+
+8\.	If the disciple is really anxious to reach for the INITIATION and to culminate in CHRISTENING, he must from the beginning come to the one who dwells in secret and let the FATHER’S WILL be done.
 
 9\.	It is necessary to remember that THE FATHER, ATMAN, THE INTIMATE, our INDIVIDUAL MONAD is the one who receives all initiations and we as BUDHATA, participate in them as well-beloved children of the FATHER.
 
@@ -27,6 +27,8 @@
 12\.	Every Master of the WHITE LODGE has learned to DO HIS FATHER’S WILL THAT DWELLS IN SECRET coming to HIM through PRAYER and MEDITATION.
 
 13\.	He who aspires to the ROSE and to the CROSS must in every moment, for any decision to be taken, run to consult with all veneration and love before his FATHER, and he, the DIVINE ATMAN, the INTIMATE, will answer.
+
+![Three Condors](/assets/img/three_condors.jpg)
 
 14\.	It is necessary, it cannot be put aside, immediately, already, now, at this instant, that he who aspires RETURN TO HIS FATHER, search within himself for that marvelous interior star that has always guided him, and through prayer, meditation, reach to prostrate at the INTIMATE’S feet, adore him, beg him, ask him for that which we need, but always in conformity to LAW, and if that is so the FATHER’S WILL.
 
