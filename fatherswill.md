@@ -12,7 +12,7 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
 
 5\.	All those that submerged themselves into the obscure and black waters of the abyss, simply and plainly did the EGO’S will.
 
-6\.	The Path of the CROSS and the ROSE is the FATHER’S PATH and _NOT_ AN AVENUE FOR THE EGO.
+6\.	The Path of the CROSS and the ROSE is the FATHER’S PATH and _NOT AN AVENUE FOR THE EGO_.
 
 7\.	The FATHER walks the Path of the Rose and the CROSS, and not so the EGO.
 
