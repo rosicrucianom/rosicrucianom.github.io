@@ -40,7 +40,7 @@
 
 19\.	We do not reach GOD with the mind, but with the HEART.   We do not reach God by directing egotistical thoughts towards outside, instead feeling, intensely feeling the need to PRAY, but living in the heart, in conscience and directing that conscientious sentiment towards inside of oneself, there inside, very deep in our own heart.  There in those UNKNOWN depths of ONE SELF, is where we must reach in prayer and find there, inside, deep inside, the FATHER WHO DWELLS IN SECRET.
 
-![Sunset](/assets/img/sunset_through_clouds_450x600x.jpg)
+![Sunset](/assets/img/sunset_in_clouds_450x600.jpg)
 
 20\.	GOD, our INTIMATE, the DIVINE ATMAN, is not found outside, but very WITHIN... _WITHIN_.
 
