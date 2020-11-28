@@ -1,5 +1,7 @@
 # The Father's Will 
 
+_(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
+
 1\.	In the inalterable infinite everything is found submitted to laws and these laws are the purpose, the will of that who is GOD, of that which is the UNMANIFESTED, THE ABSOLUTE.
 
 2\.	Living creatures in nature’s bosom comply with the laws to which they are submitted and over all they live a superior Law, the same which is amply KNOWN by nature’s elemental creatures; that _Superior and Trascendental Law_ is translated into letting that the FATHER’S WILL BE COMPLIED WITH.
