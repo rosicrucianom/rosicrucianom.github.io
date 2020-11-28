@@ -50,7 +50,7 @@ _(Representation of KON TICI WIRACOCHA on The Gate of The Sun)_
 
 ## The Order Of Melchisedek
 
-_(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
+_(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by V. M. Om Yeo Wams Om.)_
 
 101\.	OANNES, the SELF-FULFILLED WORD as BODHISATWA of the GREAT BEING, of MELCHISEDEK, is also referred to by the GENESIS.
 
