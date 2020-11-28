@@ -19,10 +19,14 @@ _(Excerpts from The Book "Alchemic Wedding".)_
    The whole life comes from the sun.  
 
    Without sun there is no energy... There is no life.  
+  
+  
    
 8\. All and each one of the cells form the vital energy absorbing element that flows from the sun.
    
 9\. Each cell constantly absorbs solar energy.  In our planet Earth, the solar energy accumulative   fountain establishes the oceans, seas waters, etc. and also the whole terrestrial crust and the integral life that over it is made known: trees, shrubs, plants, etc., but the fundamental life deposit captured from the solar fountain we find it in the water.  
+
+![Storm and Sunset](/assets/img/storm_sunset_800x600.jpg)
 
 10\. "Everything comes out from the water and everything goes back to the water".
 
@@ -30,11 +34,12 @@ _(Excerpts from The Book "Alchemic Wedding".)_
 
 12\. Al those erogene substances secreted by the sexual glands are the organism’s generative and regenerative potency súmmum.
 
-
+![Christ from Waters](/assets/img/christ_from_waters.jpg)
 
 19\.  The best that life could offer is precisely sexual energy which determines the sexual function. 
 
 20\.  Sexual functions present the most exquisite life’s delights but, lamentably, unconscious people do not enjoy life but vices. 
+
 
 
 24\.  How could a fornication vice slave enjoy life…?
