@@ -20,13 +20,11 @@ _(Excerpts from The Book "Alchemic Wedding".)_
 
    Without sun there is no energy... There is no life.  
   
-  
+![Storm and Sunset](/assets/img/storm_sunset_800x600.jpg)  
    
 8\. All and each one of the cells form the vital energy absorbing element that flows from the sun.
    
 9\. Each cell constantly absorbs solar energy.  In our planet Earth, the solar energy accumulative   fountain establishes the oceans, seas waters, etc. and also the whole terrestrial crust and the integral life that over it is made known: trees, shrubs, plants, etc., but the fundamental life deposit captured from the solar fountain we find it in the water.  
-
-![Storm and Sunset](/assets/img/storm_sunset_800x600.jpg)
 
 10\. "Everything comes out from the water and everything goes back to the water".
 
@@ -48,11 +46,11 @@ _(Excerpts from The Book "Alchemic Wedding".)_
 
 26\.  To enjoy life one has to have power and virtue.
 
-
 27\. One of the magnificent joys that chastity virtuous power offers the human being is happiness.
 
+\*\*\*
 
-43\. The most powerful energetic fountain that the human being counts with is in his own seed.
+43\. The most powerful energetic fountain that the human being counts with is _**in his own seed**_.
 
 44\. Many were the power and virtue searchers, who succumbed in the anguish search, on the other side of the oceans, in the corner of a laboratory, etc.  
 
@@ -60,6 +58,7 @@ _(Excerpts from The Book "Alchemic Wedding".)_
 
 46\. All that energetic fountain, capable of regenerating human organism and capable of granting it an eternal and inexhaustible youth, as well as that magnificent elixir that cures every sickness and the precious jewelry that transforms mean metals into pure gold, are found in oneself, within oneself and it is simply the sexual energy.
 
+\*\*\*
 
 54\. The sex is **the most powerful force** that every human being possesses within himself.
 
