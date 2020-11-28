@@ -1,6 +1,6 @@
 # The Father's Will 
 
-_(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek".)_
+_(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by V. M. Om Yeo Wams Om.)_
 
 1\.	In the inalterable infinite everything is found submitted to laws and these laws are the purpose, the will of that who is GOD, of that which is the UNMANIFESTED, THE ABSOLUTE.
 
