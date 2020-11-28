@@ -2,19 +2,21 @@
 
 1\.	In the inalterable infinite everything is found submitted to laws and these laws are the purpose, the will of that who is GOD, of that which is the UNMANIFESTED, THE ABSOLUTE.
 
-2\.	Living creatures in nature’s bosom comply with the laws to which they are submitted and over all they live a superior Law, the same which is amply KNOWN by nature’s elemental creatures; that Superior and Trascendental Law is translated into letting that the FATHER’S WILL BE COMPLIED WITH.
+2\.	Living creatures in nature’s bosom comply with the laws to which they are submitted and over all they live a superior Law, the same which is amply KNOWN by nature’s elemental creatures; that _Superior and Trascendental Law_ is translated into letting that the FATHER’S WILL BE COMPLIED WITH.
 
 3\.	All nature’s creatures comply with the FATHER’S WILL, but the rational animal does not comply with IT, he does not let the Father’s Will be done, but on the contrary, he opposes to it and worse yet, only wants to do the ego’s will.
 
-4\.	All those great Beings that reached the CHRISTENING, did everything possible and even the impossible for letting the FATHER’S arrangements be done, to COMPLY WITH THE FATHER’S WILL.  
+4\.	All those great Beings that reached the _CHRISTENING_, did everything possible and even the impossible for letting the FATHER’S arrangements be done, to COMPLY WITH THE FATHER’S WILL.  
 
 5\.	All those that submerged themselves into the obscure and black waters of the abyss, simply and plainly did the EGO’S will.
 
-6\.	The Path of the CROSS and the ROSE is the FATHER’S PATH and NOT AN AVENUE FOR THE EGO.
+6\.	The Path of the CROSS and the ROSE is the FATHER’S PATH and _NOT_ AN AVENUE FOR THE EGO.
 
 7\.	The FATHER walks the Path of the Rose and the CROSS, and not so the EGO.
 
-8\.	If the disciple is really anxious to reach for the INITIATION and to culminate in  CHRISTENING, he must from the beginning come to the one who dwells in secret and let  the FATHER’S WILL be done.
+8\.	If the disciple is really anxious to reach for the INITIATION and to culminate in CHRISTENING, he must from the beginning come to the one who dwells in secret and let the FATHER’S WILL be done.
+
+![Blessing](/assets/img/blessing.jpg)
 
 9\.	It is necessary to remember that THE FATHER, ATMAN, THE INTIMATE, our INDIVIDUAL MONAD is the one who receives all initiations and we as BUDHATA, participate in them as well-beloved children of the FATHER.
 
@@ -34,9 +36,11 @@
 
 17\.	The EGO does not know how to pray, and only knows how to “ask” that which could serve him for his satisfaction, for his pleasures.
 
-18\.	The Ego sometimes also asks for favors, grants in favor of persons that suffer, that cry, in favor of humanity, but those empty words do not reach but to the ears or to the coarse minds of the “charitable” persons, but NEVER reach the ears of that who is GOD.  TO GOD only through prayer and meditation done by the CONSCIENCE is how we come to him, NOT THROUGH THE EGO.
+18\.	The Ego sometimes also asks for favors, grants in favor of persons that suffer, that cry, in favor of humanity, but those empty words do not reach but to the ears or to the coarse minds of the “charitable” persons, but NEVER reach the ears of that who is GOD.  TO GOD only through prayer and meditation done by the **CONSCIENCE** is how we come to him, _NOT_ THROUGH THE _EGO_.
 
 19\.	We do not reach GOD with the mind, but with the HEART.   We do not reach God by directing egotistical thoughts towards outside, instead feeling, intensely feeling the need to PRAY, but living in the heart, in conscience and directing that conscientious sentiment towards inside of oneself, there inside, very deep in our own heart.  There in those UNKNOWN depths of ONE SELF, is where we must reach in prayer and find there, inside, deep inside, the FATHER WHO DWELLS IN SECRET.
+
+![Sunset](/assets/img/sunset_through_clouds_450x600x.jpg)
 
 20\.	GOD, our INTIMATE, the DIVINE ATMAN, is not found outside, but very WITHIN... _WITHIN_.
 
