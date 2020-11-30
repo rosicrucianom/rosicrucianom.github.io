@@ -2,29 +2,38 @@
 
 ![Master with kondor](/assets/img/master_with_kondor.jpg)
 
-_There is no possible contradiction between the Teachers of wide-awake conscience_.  
-They are the Truth.  
+_"There is no possible contradiction between the Teachers of wide-awake conscience.  
+They are the Truth."_  
 
-A Master does not follow the teachings of this or that religion. He knows them, he has lived them and he has experienced them.  
-A Master doesn´t follow the sacred writting´s dead letters. On the contrary, he lives them.  
-A true Master doesn´t follow any religion. The master conduces, guides and orientates the religious. He´s a superior Man, he goes beyond time, space and eternity.  
+## Letter by V. M. "OM" Sao Paulo, 01-30-1981
 
-The verb of their lips is luminous, igneous, tangible, real. They could be decapitated as John the Baptist was, but in them the verb will continue.  
+A Master is not a courtier of religions, he is their JUDGE.  
+To be a courtier of religions is more vile than to be a courtier of a CAPITAL.  
 
-A Master is not a courtier of religions, he is their JUDGE.
-To be a courtier of religions is more vile than to be a courtier of a CAPITAL.
+A Master does not follow the teachings of this or that religion. He knows them, he lives them and experiences them.  
 
 Those unable to experience the truth seek a philosophy, a "science" or a religion.  
-This ends up being superficial. They persue the virtue of the accommodating, of the concubinage.  
+This ends up being superficial, they persue the virtue of the actors, of the concubinage, these are offerings to death.  
 
-The Gods have made the man. The MASTER is made in God. The master is a God.  God is in the Master.  
+THE MASTER does not follow the dead sap of the "sacred" scriptures, on the contrary, _with fire he gives them life_.  
 
-The star of Bethlehem announces the birth of the TEACHER. 
+A true Master does not follow any religion.  
+The Master leads, guides and orients the religious.  
 
-The Master is before his time, he is in his time and goes beyond his time.  
-He will be ahead to the century in science, and to the millenium in conscience.  
+He is a superior man, he goes beyond time, space and eternity.  
 
-It´s because of the MASTER that the Initiates orientates, and for him, that the aspirants guides themselves to the LIGHT and the TRUTH.  
+The Gods have made Man. THE MASTER is made in GOD. THE MASTER IS GOD. GOD IS IN THE MASTER.  
+
+The star of Bethlehem announces the birth of the MASTER. There is no contradiction possible between the Masters of AWAKENED consciousness.  
+They ARE THE TRUTH.  
+
+THE VERB on their lips is luminous, igneous, tangible, real;  
+They could be beheaded as John THE BAPTIST, but in THEM the Word lives.  
+
+A MASTER IS before his time, IS in his time and IS beyond his time,  
+he is ahead to the century in science, and to the millenium in conscience.  
+
+It´s by THE MASTER that the Initiates orient themselves and by Him that the aspirants to the LIGHT and the TRUTH are guided.  
 
 YEO WAMS OM = J u a n  
 VERB THAT CREATES = Verb made flesh  
