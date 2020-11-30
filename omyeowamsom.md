@@ -1,47 +1,45 @@
 # V. M. Om Yeo Wams Om
 
+![Master with kondor](/assets/img/master_with_kondor.jpg)
 
-click on picture
-Picture painted
- by Eric Urquidi López,
-year 1996.
+_There is no possible contradiction between the Teachers of wide-awake conscience_.  
+They are the Truth.  
 
-A master is no religion´s courtier. He´s its Judge.  
+A Master does not follow the teachings of this or that religion. He knows them, he has lived them and he has experienced them.  
+A Master doesn´t follow the sacred writting´s dead letters. On the contrary, he lives them.  
+A true Master doesn´t follow any religion. The master conduces, guides and orientates the religious. He´s a superior Man, he goes beyond time, space and eternity.  
 
-Being a religion´s courtier is even lower than being a capital´s courtier.  
+The verb of their lips is luminous, igneous, tangible, real. They could be decapitated as John the Baptist was, but in them the verb will continue.  
 
-A master doesn´t follow the teaching of one or another religion... He knows, He´ve lived and experienced it.  
-Those people incapable of experience the truth search for a philosophy, a science, or a religion.  
-This ends up being domestic, they persue the virtue of the accommodating, of the concubinage, They are death´s oblations.  
-The Master doesn´t follow the sacred writting´s dead letters, on the contrary, he lives them.  
-The true master doesn´t follow any religion. The master conduces, guides and orientates the religious. He´s a superior man, he goes beyond time, space and eternity.  
+A Master is not a courtier of religions, he is their JUDGE.
+To be a courtier of religions is more vile than to be a courtier of a CAPITAL.
+
+Those unable to experience the truth seek a philosophy, a "science" or a religion.  
+This ends up being superficial. They persue the virtue of the accommodating, of the concubinage.  
 
 The Gods have made the man. The MASTER is made in God. The master is a God.  God is in the Master.  
 
-The star of Bethlehem announces the birth of the TEACHER. _There is no possible contradiction in the Teachers of wide-awake conscience_.  
-They are the Truth.  
-
-Their lip´s verb is luminous, igneous, tangible, real; They could be decapitated as John the Baptist was, but in them the verb will continue.  
+The star of Bethlehem announces the birth of the TEACHER. 
 
 The Master is before his time, he is in his time and goes beyond his time.  
 He will be ahead to the century in science, and to the millenium in conscience.  
 
 It´s because of the MASTER that the Initiates orientates, and for him, that the aspirants guides themselves to the LIGHT and the TRUTH.  
 
-YEO WAMS OM = John  
+YEO WAMS OM = J u a n  
 VERB THAT CREATES = Verb made flesh  
-ROSA CRUZ = Verb made man  
-THE MASTER = The man  
+ROSE CROSS = Verb made man  
+THE MASTER = A Man  
 
-The Rosicrucian is the fruit of several purifications, unceasing reflexions, anguishes tests and superhuman sacrifices.  
+The Rosicrucian is the fruit of several purifications, unceasing reflexions, torment trials and superhuman sacrifices.  
 
-The Rosicrucian is only in time and eternity, and also goes beyond time and eternity... Not as a lamb, but as a skylight where the souls anxious for light find themselves reverent to.  
-Its word is a message of war and loneliness.  
+The Rosicrucian is in time, in eternity and also goes beyond time and eternity... Not as a lamb, but as a skylight where the souls anxious for light find themselves reverent to.  
+His word is a message of war and loneliness.  
 
 And towards him turns the chosen ones, stepping over the warms craniums of the unlighted brains crowds.  
 
-The verb comands, the word obey:  
-MAKE THE  WILL OF THE FATHER  
+The verb comands:  
+DO THE WILL OF THE FATHER  
 
 Supreme and universal maxim that makes the fertile verb of his lips become flesh, fire, Light blossom.
 
