@@ -38,11 +38,11 @@ It´s by THE MASTER that the Initiates orient themselves and by Him that the asp
 YEO WAMS OM = J u a n  
 VERB THAT CREATES = Verb made flesh  
 ROSE CROSS = Verb made man  
-THE MASTER = A Man  
+THE MASTER = The Man  
 
-The Rosicrucian is the fruit of several purifications, unceasing reflexions, torment trials and superhuman sacrifices.  
-
-The Rosicrucian is in time, in eternity and also goes beyond time and eternity... Not as a lamb, but as a skylight where the souls anxious for light find themselves reverent to.  
+The Rosicrucian is the fruit of multiple purifications, incessant reflections, torment trials and superhuman sacrifices.  
+The Rosicrucian is in time and eternity and also goes beyond time and eternity...  
+Not as a lamb, but like a skylight where the souls anxious for Light find themselves reverent to.  
 His word is a message of war and loneliness.  
 
 And towards him turns the chosen ones, stepping over the warms craniums of the unlighted brains crowds.  
