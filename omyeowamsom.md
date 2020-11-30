@@ -2,8 +2,8 @@
 
 ![Master with kondor](/assets/img/master_with_kondor.jpg)
 
-_"There is no possible contradiction between the Teachers of wide-awake conscience.  
-They are the Truth."_  
+_"There is no contradiction possible between the Masters of AWAKENED consciousness.  
+They ARE THE TRUTH."_  
 
 ## Letter by V. M. "OM" Sao Paulo, 01-30-1981
 
@@ -33,7 +33,7 @@ They could be beheaded as John THE BAPTIST, but in THEM the Word lives.
 A MASTER IS before his time, IS in his time and IS beyond his time,  
 he is ahead to the century in science, and to the millenium in conscience.  
 
-It´s by THE MASTER that the Initiates orient themselves and by Him that the aspirants to the LIGHT and the TRUTH are guided.  
+It is by THE MASTER that the Initiates orient themselves and by Him that the aspirants to the LIGHT and the TRUTH are guided.  
 
 YEO WAMS OM = J u a n  
 VERB THAT CREATES = Verb made flesh  
