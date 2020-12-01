@@ -1,9 +1,9 @@
 # V. M. Om Yeo Wams Om
 
-![Master with kondor](/assets/img/master_with_kondor.jpg)
-
 _"There is no contradiction possible between the Masters of AWAKENED consciousness.  
-They ARE THE TRUTH."_  
+They ARE THE TRUTH."_ 
+
+![Master with kondor](/assets/img/master_with_kondor_snow.jpg)
 
 ## Letter by V. M. "OM" Sao Paulo, 01-30-1981
 
