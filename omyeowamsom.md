@@ -42,49 +42,49 @@ THE MASTER = The Man
 
 The Rosicrucian is the fruit of multiple purifications, incessant reflections, torment trials and superhuman sacrifices.  
 The Rosicrucian is in time and eternity and also goes beyond time and eternity...  
-Not as a lamb, but like a skylight where the souls anxious for Light find themselves reverent to.  
+Not as a lamb, but like a skylight where the souls anxious for Light are revealed reverently.  
 His word is a message of war and loneliness.  
 
-And towards him turns the chosen ones, stepping over the warms craniums of the unlighted brains crowds.  
+And towards him turn the chosen ones, stepping over the horny skulls of multitudes, of brains without light.  
 
-The verb comands:  
+Verb that commands, verb that obeys:
 DO THE WILL OF THE FATHER  
 
-Supreme and universal maxim that makes the fertile verb of his lips become flesh, fire, Light blossom.
+Supreme and universal maxim that makes the fertile Verb of his lips be flesh, be fire, be LIGHT.
 
-Who´s John? John is only a MAN, a man who suffers, keeps silent and loves, a man whose love´s conscience inflames.  
-John is a MAN, whose name means all, and nothing.  
+Who is Juan? Juan is just a MAN, a man who suffers, keeps silent and loves, a man whose consciousness of love is inflamed.  
+Juan is a MAN, whose name says everything and says nothing.  
 
-Who is the Master? What´s a MASTER?  
+Who is the Master? What is a Master?  
 
-The Master... John is a MASTER.  
+The Master... A MASTER is: JUAN.  
 
-John... whose verb, fertile as the holy seed, grows in the sleeping consciences the awakeness germ.  
+JUAN... whose verb, fertile as the holy seed, grows in the sleeping consciences as the germ of an Awakening.  
 
-John... The verb... YEO WAMS OM  
+JUAN... THE VERB... YEO WAMS OM  
 
-_The verb is life. The theories are death._  
-Life translate into facts.  
-Theories have their graves: the libraries.  
+_The Verb is life. The theories are death._  
+Life translate into FACTS.  
+Theories have their graves: The Libraries.  
 
-The facts cristalize into works. WORKS  
-The intimate realization of each one of the aspirants to the sceptre, will be the result of their own efforts.  
+The facts crystallize in works. WORKS.  
+The intimate realization in and each one of the aspirants to the sceptre will be the result of their own efforts.  
 
-YEO WAMS OM: The unknown.  
+YEO WAMS OM: The Unknown.  
 
-Who recognizes a fire´s Master? The Master is.  
-Crowds don´t know nor accept him ... and...  
-What about the conscience? What about the Master? What about the Gods?  
-How could we extend the White´s Lodge teaching?  
-How we could present the Teacher?  
+Who recognizes a Master of Fire? A Master does.  
+The crowds do not know him, nor accept him ... and...  
+What to the consciousness? What to the Master? What to the Gods?  
+How could we introduce the Master?  
+The master IS.
+
+How could we present the teaching of the White Lodge?
 The Master is, and the teaching has to be lived.  
-The lived teaching doesn´t need to be extended.  
-The LIGHT and the FIRE don´t need prologues.  
+The lived teaching doesn´t need to be presented.  
+The FIRE and the LIGHT do not need prologues.  
 
-The ROSE and the CROSS´ symbols contain the holy fire and light, whose warmth and luminuosity can only be lived by practising it and from practice to achievement, the breaves goes towards their INNER  MASTER.  
+The symbol of the ROSE and the CROSS contain the holy Fire and the divine Light, whose warmth and luminosity can only be lived by practising it, and from practice to realization the brave one goes towards THEIR INNER MASTER.  
 
-Every Real aspirant to the Initiation, must search for his own HOLY FATHER WHO SECRETLY RESIDES. This searching begins with the Rosecross order´s esoteric wisdom application.  
+Every Real aspirant to the Initiation, must search for his own HOLY FATHER WHO DWELVES IN SECRET. The search begins with the practical application of the esoteric wisdom of the Rosicrucian Order.  
 
-Fdo.: V. M. "OM" Sao Paulo, 30-01-1981.  
-
-THE PUBLISHERS.  
+Signed: V. M. "OM" Sao Paulo, 30-01-1981.  
