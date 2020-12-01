@@ -70,9 +70,9 @@ Who recognizes a Master of Fire? A Master does.
 The crowds do not know him, nor accept him ... and...  
 What to the consciousness? What to the Master? What to the Gods?  
 How could we introduce the Master?  
-The master IS.
+The master IS.  
 
-How could we present the teaching of the White Lodge?
+How could we present the teaching of the White Lodge?  
 The Master is, and the teaching has to be lived.  
 The lived teaching does not need to be presented.  
 The FIRE and the LIGHT do not need prologues.  
