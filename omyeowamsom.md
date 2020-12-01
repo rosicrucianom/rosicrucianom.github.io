@@ -47,7 +47,8 @@ Verb that commands, verb that obeys:
 _DO THE WILL OF THE FATHER_  
 Supreme and universal maxim that makes the fertile Verb of his lips be flesh, be fire, be LIGHT.
 
-![Master with kondor](/assets/img/master_young.jpg)
+![Master Om Yeo Wams Om](/assets/img/master_om_yeo_wams_om.jpg)  
+_Painting by Eric Urquidi López, 1996_
 
 Who is Juan? Juan is just a MAN, a man who suffers, keeps silent and loves, a man whose consciousness of love is inflamed.  
 Juan is a MAN, whose name says everything and says nothing.  
