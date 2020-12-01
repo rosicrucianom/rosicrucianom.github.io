@@ -1,7 +1,7 @@
 # V. M. Om Yeo Wams Om
 
-_"There is no contradiction possible between the Masters of AWAKENED consciousness.  
-They ARE THE TRUTH."_ 
+_There is no contradiction possible between the Masters of AWAKENED consciousness.  
+They ARE THE TRUTH._ 
 
 ![Master with kondor](/assets/img/master_with_kondor_snow.jpg)
 
