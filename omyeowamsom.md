@@ -74,7 +74,7 @@ The master IS.
 
 How could we present the teaching of the White Lodge?
 The Master is, and the teaching has to be lived.  
-The lived teaching doesn´t need to be presented.  
+The lived teaching does not need to be presented.  
 The FIRE and the LIGHT do not need prologues.  
 
 The symbol of the ROSE and the CROSS contain the holy Fire and the divine Light, whose warmth and luminosity can only be lived by practising it, and from practice to realization the brave one goes towards THEIR INNER MASTER.  
