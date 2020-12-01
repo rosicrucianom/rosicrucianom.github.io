@@ -87,4 +87,4 @@ The symbol of the ROSE and the CROSS contain the holy Fire and the divine Light,
 
 Every Real aspirant to the Initiation, must search for his own HOLY FATHER WHO DWELVES IN SECRET. The search begins with the practical application of the esoteric wisdom of the Rosicrucian Order.  
 
-Signed: V. M. "OM" Sao Paulo, 30-01-1981.  
+_Signed: V. M. "OM" Sao Paulo, 30-01-1981._  
