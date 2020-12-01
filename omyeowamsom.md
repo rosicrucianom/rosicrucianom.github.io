@@ -9,7 +9,6 @@ They ARE THE TRUTH."_
 
 A Master is not a courtier of religions, he is their JUDGE.  
 To be a courtier of religions is more vile than to be a courtier of a CAPITAL.  
-
 A Master does not follow the teachings of this or that religion. He knows them, he lives them and experiences them.  
 
 Those unable to experience the truth seek a philosophy, a "science" or a religion.  
@@ -19,7 +18,6 @@ THE MASTER does not follow the dead sap of the "sacred" scriptures, on the contr
 
 A true Master does not follow any religion.  
 The Master leads, guides and orients the religious.  
-
 He is a superior man, he goes beyond time, space and eternity.  
 
 The Gods have made Man. THE MASTER is made in GOD. THE MASTER IS GOD. GOD IS IN THE MASTER.  
@@ -41,24 +39,20 @@ ROSE CROSS = Verb made man
 THE MASTER = The Man  
 
 The Rosicrucian is the fruit of multiple purifications, incessant reflections, torment trials and superhuman sacrifices.  
+
 The Rosicrucian is in time and eternity and also goes beyond time and eternity...  
 Not as a lamb, but like a skylight where the souls anxious for Light are revealed reverently.  
 His word is a message of war and loneliness.  
-
 And towards him turn the chosen ones, stepping over the horny skulls of multitudes, of brains without light.  
 
 Verb that commands, verb that obeys:
-DO THE WILL OF THE FATHER  
-
+_DO THE WILL OF THE FATHER_  
 Supreme and universal maxim that makes the fertile Verb of his lips be flesh, be fire, be LIGHT.
 
 Who is Juan? Juan is just a MAN, a man who suffers, keeps silent and loves, a man whose consciousness of love is inflamed.  
 Juan is a MAN, whose name says everything and says nothing.  
-
 Who is the Master? What is a Master?  
-
 The Master... A MASTER is: JUAN.  
-
 JUAN... whose verb, fertile as the holy seed, grows in the sleeping consciences as the germ of an Awakening.  
 
 JUAN... THE VERB... YEO WAMS OM  
