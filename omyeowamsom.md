@@ -1,18 +1,16 @@
 # V. M. Om Yeo Wams Om
 
 _There is no contradiction possible between the Masters of AWAKENED consciousness.  
-They ARE THE TRUTH._ 
+They ARE THE TRUTH._  
 
-![Master with kondor](/assets/img/master_with_kondor_snow.jpg)
-
-## Letter by V. M. "OM" Sao Paulo, 01-30-1981
+![Master with kondor](/assets/img/master_with_kondor_snow.jpg)  
 
 A Master is not a courtier of religions, he is their JUDGE.  
 To be a courtier of religions is more vile than to be a courtier of a CAPITAL.  
 A Master does not follow the teachings of this or that religion. He knows them, he lives them and experiences them.  
 
-Those unable to experience the truth seek a philosophy, a "science" or a religion.  
-This ends up being superficial, they persue the virtue of the actors, of the concubinage, these are offerings to death.  
+Those unable to experience the truth, seek a philosophy, a "science" or a religion.  
+This ends up being superficial. They persue the virtue of the actors, of the concubinage, these are offerings to death.  
 
 THE MASTER does not follow the dead sap of the "sacred" scriptures, on the contrary, _with fire he gives them life_.  
 
@@ -48,6 +46,8 @@ And towards him turn the chosen ones, stepping over the horny skulls of multitud
 Verb that commands, verb that obeys:
 _DO THE WILL OF THE FATHER_  
 Supreme and universal maxim that makes the fertile Verb of his lips be flesh, be fire, be LIGHT.
+
+![Master with kondor](/assets/img/master_young.jpg)
 
 Who is Juan? Juan is just a MAN, a man who suffers, keeps silent and loves, a man whose consciousness of love is inflamed.  
 Juan is a MAN, whose name says everything and says nothing.  
