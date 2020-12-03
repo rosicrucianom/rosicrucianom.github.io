@@ -38,6 +38,8 @@ _Great battles are executed on the scenery of life._
 
 138\.	SELF-OBSERVANCE and SELF-REMEMBRANCE are indispensable for the AWAKENING of the CONSCIENCE.  
 
+![Blooming Roses](/assets/img/roses_800x600.jpg)
+
 139\.	Self-observance allows us to have conscience of what we do and of the place where we are.  
 
 140\.	The self-remembrance permits us to have conscience of OURSELVES.  
