@@ -3,9 +3,8 @@
 # Self-Remembrance And Self-Observation
 
 _Here we find the OM in Sanskrit,  
-primordial sound of universal character  
-that we owe mantrate and remember  
-in the practice of Conscious Attention._  
+primordial sound of a universal symbol  
+used in the practice of Conscious Attention._  
 
 ![Om](/assets/img/om.gif)
 
@@ -13,7 +12,7 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by 
 
 126\.	Each day that passes by must be a day of greater conscience and a day of victories over the ego.  A lost day, an unsubstantial day, is a day of victory for the Ego, for the reason.  
 
-Great battles are executed on the scenery of life.  
+_Great battles are executed on the scenery of life._  
 
 127\.	All the bloody war has for battle camp, ONE SELF.  
 
