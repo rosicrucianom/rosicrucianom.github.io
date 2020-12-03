@@ -1,14 +1,16 @@
 {% include practices.md %}
 
-SELF-REMEMBRANCE AND SELF-OBSERVATION
-
-![Om](/assets/img/om.gif)
+# SELF-REMEMBRANCE AND SELF-OBSERVATION
 
 _Here we find the OM in Sanskrit,  
 primordial sound of universal character  
 that we owe mantrate and remember  
 in the practice of Conscious Attention._  
- 
+
+![Om](/assets/img/om.gif)
+
+_(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by V. M. Om Yeo Wams Om.)_
+
 126\.	Each day that passes by must be a day of greater conscience and a day of victories over the ego.  A lost day, an unsubstantial day, is a day of victory for the Ego, for the reason.  
 
 Great battles are executed on the scenery of life.  
