@@ -1,6 +1,6 @@
 {% include practices.md %}
 
-# SELF-REMEMBRANCE AND SELF-OBSERVATION
+# Self-Remembrance And Self-Observation
 
 _Here we find the OM in Sanskrit,  
 primordial sound of universal character  
