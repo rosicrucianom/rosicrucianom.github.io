@@ -121,7 +121,7 @@ Great battles are executed on the scenery of life.
 
 178\.	CONSCIENTIOUS ATTENTION must carry out his job, here, now, in this precise instant, and not tomorrow or at another moment.  
 
-179\.	How to work with the CONSCIENTIOUS ATTENTION?  This is a job –we reiterate- of the CONSCIENCE, not of the ego.  The ego cannot work with the CONSCIENTIOUS ATTENTION because it is not its function.  Nobody could chew with somebody else’s teeth.  
+179\.	How to work with the CONSCIENTIOUS ATTENTION?  This is a job – we reiterate - of the CONSCIENCE, not of the ego.  The ego cannot work with the CONSCIENTIOUS ATTENTION because it is not its function.  Nobody could chew with somebody else’s teeth.  
 
 180\.	The ego cannot carry out any division of its attention because it is completely divided.  
 
