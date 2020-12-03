@@ -12,7 +12,7 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by 
 
 126\.	Each day that passes by must be a day of greater conscience and a day of victories over the ego.  A lost day, an unsubstantial day, is a day of victory for the Ego, for the reason.  
 
-_Great battles are executed on the scenery of life._  
+Great battles are executed on the scenery of life.  
 
 127\.	All the bloody war has for battle camp, ONE SELF.  
 
@@ -21,6 +21,8 @@ _Great battles are executed on the scenery of life._
 129\.	If the Budhata is not alert, at any moment can be a victim of one of the me’s of fornication and will lose much of the conquered.  
 
 130\.	All the me’s have to be controlled, but the fundamental battle is the one that is sustained against the me’s of FORNICATION.  
+
+![Attacking Ego](/assets/img/destroying_ego.jpg)
 
 131\.	Attacks of the different me’s, are not slow, preconceived, alerted, etc.  These assails and attacks of the Ego are unforeseen, unexpected and violent, therefore, it imposes upon the fact that we have to live fully alert, watchful like the “guard looking out in war time”, prompt to avoid the assails from the internal enemy.  What thief could get into a house, if this one was very well guarded?  
 
