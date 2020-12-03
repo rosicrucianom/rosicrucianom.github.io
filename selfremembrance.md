@@ -38,9 +38,9 @@ Great battles are executed on the scenery of life.
 
 137\.	To remember ONESELF is something of undisputable importance if  the awakening of the conscience is really longed for.  Only through SELF REMEMBRANCE is how we can observe ourselves.  If we do not remember ourselves, it is impossible to be able to observe us, and we cannot remember ourselves if we do not observe ourselves, if we do not SELF-OBSERVE US.  
 
-138\.	SELF-OBSERVANCE and SELF-REMEMBRANCE are indispensable for the AWAKENING of the CONSCIENCE.  
-
 ![Blooming Roses](/assets/img/roses_800x600.jpg)
+
+138\.	SELF-OBSERVANCE and SELF-REMEMBRANCE are indispensable for the AWAKENING of the CONSCIENCE.  
 
 139\.	Self-observance allows us to have conscience of what we do and of the place where we are.  
 
