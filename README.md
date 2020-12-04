@@ -8,7 +8,7 @@ The wise of Ancient India, many centuries before Christianity, had the Holy CROS
 
 All the Initiates in the CROSS' holy science had as maximum achieved the blooming of the Centre Rose which was placed conscientiously in the precise spot between the joint of the two logs.  
 
-![The Rosicrucian Om Order](/assets/img/rosicrucianomorder_800x744.png)
+![The Rosicrucian Om Order](/assets/img/rosicrucianomorder.png)
 
 The Great Mystical Rose means the Great Work's total magnificent achievement. The full _Christification_ of the Master, the Great GURUJI.  
 
