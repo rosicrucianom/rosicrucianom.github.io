@@ -4,7 +4,7 @@
 
 ## Individuality Activity Location OM
 
-_Here we find the OM in Sanskrit, primordial sound of a universal symbol used in the practice of Conscious Attention._  
+The OM in Sanskrit, primordial sound of a universal symbol used in the practice of Conscious Attention.  
 
 ![Om Mandala](/assets/img/om_mandala.png)
 
