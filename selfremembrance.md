@@ -2,7 +2,7 @@
 
 # Self-Remembrance And Self-Observation
 
-_Here we find the OM in Sanskrit, primordial sound of a universal symbol used in the practice of Conscious Attention._  
+The OM in Sanskrit, primordial sound of a universal symbol used in the practice of Conscious Attention.  
 
 ![Om](/assets/img/om.gif)
 
