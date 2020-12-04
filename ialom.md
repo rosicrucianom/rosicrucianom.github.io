@@ -4,6 +4,8 @@
 
 ## Individuality Activity Location OM
 
+![Om Mandala](/assets/img/om_mandala.png)
+
 _(Excerpt from The Book "Alchemical Wedding" by V. M. Om Yeo Wams Om.)_
 
 24\.  So that you have a life full of Conscience, so that you become completely conscientious, so that you liberate yourselves from the heavy chains of the unconscious, you will constantly live, indefatigably and at all times, at each second, day and night, the key to the division of the conscientious attention center, the code of IAL.  
