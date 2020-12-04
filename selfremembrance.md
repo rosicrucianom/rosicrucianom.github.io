@@ -4,7 +4,7 @@
 
 The OM in Sanskrit, primordial sound of a universal symbol used in the practice of Conscious Attention.  
 
-![Om](/assets/img/om.gif)
+![Om](/assets/img/om.png)
 
 _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by V. M. Om Yeo Wams Om.)_
 
