@@ -30,4 +30,6 @@ _(Excerpt from The Book "Alchemical Wedding" by V. M. Om Yeo Wams Om.)_
 
 32\.  With the I.A.U. code, all mystical lovers will awaken conscience, they will liberate themselves from the ego and free they will surmount themselves up to the snow-white summits of the Shahmadi.
 
-_LIFE,  DEATH,  LOVE,  FREEDOM  AND  WISDOM_
+![Lotus](/assets/img/lotus_bali.jpg)
+
+_LIFE, DEATH, LOVE, FREEDOM AND WISDOM_
