@@ -2,7 +2,7 @@
 
 # Sexual Transmutation
 
-![Caduceo](/assets/img/caduceo.jpg)
+![Caduceo](/assets/img/caduceo.jpg) ![Hermes](/assets/img/hermes.jpg)
 
 _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by V. M. Om Yeo Wams Om.)_
 
