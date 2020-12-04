@@ -26,6 +26,8 @@
 
 8\.	All those who aspire, ROSICRUCIAN serious students, must necessarily practice sexual Transmutation.  
 
+![Chakras](/assets/img/chakra_colors.jpg)
+
 9\.	Previously indicated exercises for the awakening and development of the IGNEOUS ROSES or SHAKRAS, will only be practiced after having done a Unipolar Transmutation exercise, being or not the practitioners of married civil state.  
 
 10\.	There are a diversity of methods for the practice of Unipolar Sexual Transmutation; that is, for those bachelors and unmarried men.  Next we will give you a very simple to do exercise that gives excellent results for the semen transmutation avoiding all types of erotic manifestations during normal sleep, voiding consequently the “wet” dreams and nocturnal pollutions.  
