@@ -1,14 +1,8 @@
 {% include practices.md %}
 
- IGNEOUS CIRCLE OF PROTECTION
-AND THE FLAMING STAR 
-	 
-  	
+# Igneous Circle Of Protection And The Flaming Star
 
-from the book: "ALCHEMY WEDDINGS "
-by the V. M. M. YEO WAMS OM 
-	 
-
+![Tetragrammaton](/assets/img/tetragrammaton_gold.jpg)
 
 Standing, they will lift the stretched arms and with the palms up, until touching the fingers over the head, at the same time that the feet will be half-opened.
 
