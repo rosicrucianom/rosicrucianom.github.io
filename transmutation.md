@@ -15,8 +15,10 @@
 5\.	There are three ways to Transmute:  
 
     UNIPOLAR TRANSMUTATION
-    BIPOLAR TRANSMUTATIO
+    BIPOLAR TRANSMUTATION
     INTEGRAL TRANSMUTATION 
+
+![Nadis of Woman and Man](/assets/img/nadis_woman_man.jpg)
 
 6\.	UNIPOLAR and BIPOLAR Transmutation are those ones that he who aspires to the great White Lodge does it when still has not reached the WEDDING ALTAR, or has not found the “companion” of work in the Magnus Work.  
 
