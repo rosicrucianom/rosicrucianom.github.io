@@ -2,7 +2,7 @@
 
 # Igneous Circle Of Protection And The Flaming Star
 
-![Tetragrammaton](/assets/img/tetragrammaton_gold.jpg)
+![Tetragrammaton](/assets/img/tetragrammaton_gold.png)
 
 Standing, they will lift the stretched arms and with the palms up, until touching the fingers over the head, at the same time that the feet will be half-opened.
 
