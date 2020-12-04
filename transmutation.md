@@ -4,6 +4,8 @@
 
 ![Caduceo](/assets/img/caduceo.jpg)
 
+_(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by V. M. Om Yeo Wams Om.)_
+
 1\.	For the achievement of our dearest goals on the Path of the CROSS and the ROSE, it is indispensable, before anything, to maintain a life of CHASTITY.  
 
 2\.	It is through Real Chastity how we can store in us plenty of raw material, of divine seed that offer us the necessary potentiality to awaken and to develop the Shakras of our internal bodies and to conquer all those marvelous powers that turn us into MASTERS of LIFE, DEATH, LOVE and that convert us into authentic MEN, into ANGELS and into GODS.  
