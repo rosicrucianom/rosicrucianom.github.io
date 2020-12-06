@@ -18,6 +18,7 @@ PHONE (054-11) 4952-2670
 ## BOLIVIA
 
 [![Web Page](/assets/img/globe_32px.png) http://www.elrosacruz.com/](http://www.elrosacruz.com/)  
+[![Web Page](/assets/img/globe_32px.png) http://www.elrosacruz.org/](http://www.elrosacruz.org/)  
   
 ### COCHABAMBA
 
