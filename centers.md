@@ -38,6 +38,16 @@ PHONE 9086724719
 
 ![E-Mail](/assets/img/email_32px.png) rosacruzomnyc@gmail.com
 
+## LITHUANIA
+
+### VILNIUS
+
+[![Web Page](/assets/img/globe_32px.png) https://www.rozekryzieciai.lt/](https://www.rozekryzieciai.lt/)
+  
+![E-Mail](/assets/img/email_32px.png) rosicrucianom@gmail.com
+
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Rožekryžiečių-Om-Ordinas-105311031394336](https://www.facebook.com/Rožekryžiečių-Om-Ordinas-105311031394336)
+
 ## ARGENTINA
   
 [![Web Page](/assets/img/globe_32px.png) http://www.ordenrosacruzom.org/](http://www.ordenrosacruzom.org/)
@@ -55,7 +65,7 @@ PHONE (054-11) 4952-2670
 
 PHONE 03541-15375174, 1561110  
 
-![E-Mail](/assets/img/email_32px.png) rosacruzomcordoba@yahoo.com.ar1
+![E-Mail](/assets/img/email_32px.png) rosacruzomcordoba@yahoo.com.ar
   
 ## BOLIVIA
 
@@ -151,16 +161,6 @@ PHONE (593) 2237207
 ## HONDURAS
 
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/OrdenRosacruzOmHonduras](https://www.facebook.com/OrdenRosacruzOmHonduras)
-
-## LITHUANIA
-
-### VILNIUS
-
-[![Web Page](/assets/img/globe_32px.png) https://www.rozekryzieciai.lt/](https://www.rozekryzieciai.lt/)
-  
-![E-Mail](/assets/img/email_32px.png) rosicrucianom@gmail.com
-
-[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Rožekryžiečių-Om-Ordinas-105311031394336](https://www.facebook.com/Rožekryžiečių-Om-Ordinas-105311031394336)
   
 ## PERU
 
