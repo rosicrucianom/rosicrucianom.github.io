@@ -63,26 +63,16 @@ PHONE 03541-15375174, 1561110
 [![Web Page](/assets/img/globe_32px.png) http://www.elrosacruz.org/](http://www.elrosacruz.org/)  
   
 ### COCHABAMBA
-
-Street 25 de mayo N° S 0435. Building Abaroa Cinema 2° Piso.  
-P.O.Box N° 2939. Cochabamba. Bolivia.  
   
-PHONE (059-42) 57583
+PHONE (059) 4584402
   
-![E-Mail](/assets/img/email_32px.png) rosacruz@supernet.com.bo  
 ![E-Mail](/assets/img/email_32px.png) corazondebolivia@hotmail.com  
-![E-Mail](/assets/img/email_32px.png) rosacruz@mail2.supernet.com.bo  
   
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/ordenrosacruzom.cochabambabolivia/about](https://www.facebook.com/ordenrosacruzom.cochabambabolivia/about)
  
 ### LA PAZ
-
-Pucarani 239  
-(Inquisivi square, to one block of houses and parallel to Av. Pando)
   
-Casilla 173 Correo Central
-  
-PHONE (02)-2461757
+PHONE (02)- 2461757, 70690549  
   
 ![E-Mail](/assets/img/email_32px.png) rosacruzluz@yahoo.com  
   
@@ -90,32 +80,31 @@ PHONE (02)-2461757
 
 ### EL ALTO
 
-Av. Franco Valle 26 square street 2  Floor 1° Office 36. Zone 12 de Octubre.
-  
-PHONE (02)-2842375
+PHONE (02) - 2826037  
 
 ![E-Mail](/assets/img/email_32px.png) rosacruzelalto@yahoo.es
 
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Orden-Rosacruz-Om-El-Alto-246333055745907](https://www.facebook.com/Orden-Rosacruz-Om-El-Alto-246333055745907)
  
+### RIO SECO
+
+PHONE 72065878, 68089216  
+
+![E-Mail](/assets/img/email_32px.png) rosacruzmery@yahoo.com
+ 
 ### SANTA CRUZ
 
-Street Junin 525.    2º Piso
+PHONE 75373236
 
-![E-Mail](/assets/img/email_32px.png) orc_santacruz@yahoo.com
+![E-Mail](/assets/img/email_32px.png) ana.taboada.arnold@gmail.com
  
 ### TARIJA
-
-Street Corrado N° E - 0189  (between Colon and Suipacha)  
-Casilla 381  
   
 PHONE (04) 6645884  
   
 ![E-Mail](/assets/img/email_32px.png) rosacruztarija@mixmail.com
  
 ### SUCRE
-
-Street Eduardo Berdecio 713  
   
 PHONE +591 67652189
   
@@ -130,12 +119,18 @@ Street Soria Galvarro 6448 (between Aldana  y San Felipe)
 ![E-Mail](/assets/img/email_32px.png) rosacruzomoruro@yahoo.com
  
 ### POTOSI
- 
-Street  La Paz  square Omiste  
-  
+   
 PHONE 6243683
   
 ![E-Mail](/assets/img/email_32px.png) rosacruzptotsis@hotmail.com
+ 
+## CHILE
+
+### LA SERENA
+
+PHONE 9 9505 4174  
+
+![E-Mail](/assets/img/email_32px.png) rosacruzomchile@gmail.com  
  
 ## COSTA RICA
 
@@ -145,9 +140,9 @@ PHONE 6243683
 
 ## ECUADOR
 
-Av Pichincha, Quito 170121  
+### QUITO
   
-PHONE (593) 99653367  
+PHONE (593) 2237207  
   
 ![E-Mail](/assets/img/email_32px.png) rosacruz_ecu@yahoo.com
 
@@ -159,9 +154,9 @@ PHONE (593) 99653367
 
 ## LITHUANIA
 
+### VILNIUS
+
 [![Web Page](/assets/img/globe_32px.png) https://www.rozekryzieciai.lt/](https://www.rozekryzieciai.lt/)
-  
-VILNIUS  
   
 ![E-Mail](/assets/img/email_32px.png) rosicrucianom@gmail.com
 
@@ -169,33 +164,45 @@ VILNIUS
   
 ## PERU
 
-### LIMA
+### LIMA - CALLAO
 
-Avenue Nicolás de Piérola 757. Office 507.
+PHONE 987205629
   
 ![E-Mail](/assets/img/email_32px.png) rosacruzlima@yahoo.com
  
 ### AREQUIPA 
  
-"Local ORCA" Av. Alcides Carrión 175. Floor 2.   
-La Pampilla. Distrit José L. Bustamante y Rivero.   
-Casilla 297  
- 
-PHONES  
-LUIS DEL CARPIO : 9920916  
-VIVIANA BOLIVAR: 9920912  
-JOHANY MACEDO : 9933948  
-LORENA MENDOZA: 9931061  
+PHONE 958793481  
 
 ![E-Mail](/assets/img/email_32px.png) ordenrosacruzom_arequipa@yahoo.com
+
+### Chorillos
+
+PHONE 923510257 
+
+### Ventanilla
+
+PHONE 975013153  
+
+### Centro de Lima
+
+PHONE 998023115
+
+### San Juan de Lurigancho
+
+PHONE 953241616
+
+![E-Mail](/assets/img/email_32px.png) rosacruzomlima@gmail.com
+
+## PARAGUAY
+
+PHONE 0983-279068  
+
+![E-Mail](/assets/img/email_32px.png) rosacruz.om.paraguay@gmail.com  
  
 ## SPAIN
 
-MADRID  
-Aula Luxis Orden Rosa Cruz Om  
-New direction  
-C/ Mayor nº 1- segunda planta- Local nº 29  
-Transporte mas cercano: Metro Sol ( a 50 metros)  
+### MADRID  
   
 PHONE (0034)-610335835  
   
