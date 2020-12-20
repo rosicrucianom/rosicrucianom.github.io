@@ -1,20 +1,62 @@
 # Worldwide Study Centers
 
 The Rosicrucian Om Order has presence across the Earth.
+ 
+## UNITED STATES OF AMERICA
 
-## ARGENTINE
+### FLORIDA Clearwater
+
+PHONE 727 303 6778  
+
+![E-Mail](/assets/img/email_32px.png) rxcentral@yahoo.com
+
+### St. Peterburg
+
+PHONE 267 345 5138  
+
+![E-Mail](/assets/img/email_32px.png) orden.rosa.cruz.om.@gmail.com  
+
+### Tampa
+
+![E-Mail](/assets/img/email_32px.png) vidarosacruzom@gmail.com  
+
+### Orlando
+
+PHONE 407 627 3675  
+
+![E-Mail](/assets/img/email_32px.png) ordenrosacruzomorlando@gmail.com  
+
+### West Palm Beach
+
+PHONE 561 6808940 - 561 4446898  
+
+![E-Mail](/assets/img/email_32px.png) luin4@live.com 
+
+### New York
+
+PHONE 9086724719
+
+![E-Mail](/assets/img/email_32px.png) rosacruzomnyc@gmail.com
+
+## ARGENTINA
   
 [![Web Page](/assets/img/globe_32px.png) http://www.ordenrosacruzom.org/](http://www.ordenrosacruzom.org/)
   
-Juan Jose Paso 231 PB "2" C1031ABE.  
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzom.argentina](https://www.facebook.com/rosacruzom.argentina)  
+[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/argentinarosacruz](https://www.facebook.com/argentinarosacruz)
   
+### Balbanera
+    
 PHONE (054-11) 4952-2670
   
 ![E-Mail](/assets/img/email_32px.png) correo@ordenrosacruzom.org  
-  
-[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/rosacruzom.argentina](https://www.facebook.com/rosacruzom.argentina)  
-[![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/argentinarosacruz](https://www.facebook.com/argentinarosacruz)
 
+### Cordoba
+
+PHONE 03541-15375174, 1561110  
+
+![E-Mail](/assets/img/email_32px.png) rosacruzomcordoba@yahoo.com.ar1
+  
 ## BOLIVIA
 
 [![Web Page](/assets/img/globe_32px.png) http://www.elrosacruz.com/](http://www.elrosacruz.com/)  
@@ -160,9 +202,3 @@ PHONE (0034)-610335835
 ![E-Mail](/assets/img/email_32px.png) rosacruzrafa@hotmail.com
   
 [![Facebook](/assets/img/facebook_32px.png) https://www.facebook.com/Orden-Rosa-Cruz-Om-Madrid-873934476037196](https://www.facebook.com/Orden-Rosa-Cruz-Om-Madrid-873934476037196)
- 
-## UNITED STATES OF AMERICA
-
-HEADQUARTERS
-
-![E-Mail](/assets/img/email_32px.png) rxcentral@yahoo.com
