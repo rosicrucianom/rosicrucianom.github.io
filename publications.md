@@ -4,11 +4,6 @@ The teachings given by the V.M. Om Yeo Wams Om, embraces a series of writings, c
 
 The books that are published by V.M. Om Yeo Wams Om - Dr. Juan Santa Cruz Torrez.  
 
-### The Rosicrucian Om Order. The Order Of Melchisedek
-
-![Book](/assets/img/book_orc_om.jpg)  
-La Orden Rosa Cruz. El Orden De Melquisedec  
-
 ### The Rosicrucian Om Order. The Order Of Melchisedek (AUDIO BOOK, ENGLISH)
 
 The book has been translated to English and an audio recording is being produced. Currently, the following chapters are available for your listening:
@@ -25,6 +20,13 @@ The book has been translated to English and an audio recording is being produced
 
 (Being recorded)
   
+### The Rosicrucian Om Order. The Order Of Melchisedek
+
+The original version upon which the above audio recording is based.
+
+![Book](/assets/img/book_orc_om.jpg)  
+La Orden Rosa Cruz. El Orden De Melquisedec  
+
 ### The Alchemical Wedding
 
 ![Book](/assets/img/book_alquimicas.jpg)  
