@@ -2,6 +2,7 @@
 
 {% include youtube.html id="_-sAQoZ2o18" %}
 
+
 The origin of Rosicrucians, august members of the **Great White Fraternity**, faithful apostles of the Rosicrucian Order, fade in the night of the centuries.  
 
 The Rosicrucians made their appearance in all ages and all countries, under different denominations, shined only for a short instant and then disappeared to keep shinning even more, in the _unknown depths of the higher cosmos_.  
