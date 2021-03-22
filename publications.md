@@ -1,4 +1,4 @@
-# Publications
+# Publications & Audio Books!
 
 The teachings given by the V.M. Om Yeo Wams Om, embraces a series of writings, conferences, publications, interviews, courses, messages, recordings, as well as several books.  
 
@@ -15,13 +15,14 @@ The book has been translated to English and an audio recording is being produced
 
 #### Chapter - Reason for The Dedication
 
-{% include youtube.html id="_-sAQoZ2o18" %}  
-  
-  
+<p>
+{% include youtube.html id="_-sAQoZ2o18" %}
+</p>
+
 #### Chapter 1 - The Solar Energy
 
-{% include youtube.html id="E5gP9lCBqeY" %}  
-  
+{% include youtube.html id="E5gP9lCBqeY" %}
+<br/>
   
 #### Chapter 2 - The Tree of Life
 
