@@ -18,7 +18,7 @@ The book has been translated to English and an audio recording is being produced
   
 #### Chapter 2 - The Tree of Life
 
-(Being recorded)
+_(Being recorded)_
   
 ### The Rosicrucian Om Order. The Order Of Melchisedek
 
