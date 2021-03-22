@@ -9,21 +9,19 @@ The books that are published by V.M. Om Yeo Wams Om - Dr. Juan Santa Cruz Torrez
 ![Book](/assets/img/book_orc_om.jpg)  
 La Orden Rosa Cruz. El Orden De Melquisedec  
 
-#### Audio Book Recording (English!)
+#### Audio Book Recording (ENGLISH)
 
-Currently, the following chapters have been recorded:
+This book has been translated to English and an audio recording is being produced. Currently, the following chapters are available for your listening:
 
-*Reason for The Dedication*
+##### Chapter - Reason for The Dedication
 
 {% include youtube.html id="_-sAQoZ2o18" %}
 
-
-*Chapter 1 - The Solar Energy*
+##### Chapter 1 - The Solar Energy
 
 {% include youtube.html id="E5gP9lCBqeY" %}
 
-
-*Chapter 2 - The Tree of Life*
+##### Chapter 2 - The Tree of Life
 
 (Being recorded)
   
