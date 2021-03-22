@@ -1,7 +1,7 @@
 # The Rosicrucian Om Order - The Order Of Melchisedek
 
 {% include youtube.html id="_-sAQoZ2o18" %}  
-[(Chapter from Audiobooks)](./publications.html)  
+(A chapter from [Audiobooks](./publications.html))  
 
 The origin of Rosicrucians, august members of the **Great White Fraternity**, faithful apostles of the Rosicrucian Order, fade in the night of the centuries.  
 
