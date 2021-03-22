@@ -15,12 +15,12 @@ The book has been translated to English and an audio recording is being produced
 
 #### Chapter - Reason for The Dedication
 
-{% include youtube.html id="_-sAQoZ2o18" %} \
-\
+{% include youtube.html id="_-sAQoZ2o18" %}
+  
 #### Chapter 1 - The Solar Energy
 
-{% include youtube.html id="E5gP9lCBqeY" %} \
-\
+{% include youtube.html id="E5gP9lCBqeY" %}
+  
 #### Chapter 2 - The Tree of Life
 
 (Being recorded)
