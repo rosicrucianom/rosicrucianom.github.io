@@ -6,7 +6,7 @@ Write us an email:
 
 Follow news on Telegram app:
 
-![Telegram](/assets/img/telegram_32px.png) https://t.me/rosicrucianomorder
+[![Telegram](/assets/img/telegram_32px.png) https://t.me/rosicrucianomorder](https://t.me/rosicrucianomorder)
 
 Visit us on Facebook:  
   
