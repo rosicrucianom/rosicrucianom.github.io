@@ -1,6 +1,6 @@
 # Meditative Music Soundtracks
 
-The original **meditative soundtrack** compositions for the chapters of the [The Rosicrucian Om Order. The Order Of Melchisedek](/publications.md#the-rosicrucian-om-order-the-order-of-melchisedek-audio-book-english) audiobook recording!    
+The original music-only compositions for the chapters of the [The Rosicrucian Om Order. The Order Of Melchisedek](/publications.md#the-rosicrucian-om-order-the-order-of-melchisedek-audio-book-english) audiobook recording!    
 
 ## Soundtrack - Reason for The Dedication | Wake-Up Meditation with Hang Drum and Guitar
 
