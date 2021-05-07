@@ -10,7 +10,9 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by 
 
 2\.	It is through Real Chastity how we can store in us plenty of raw material, of divine seed that offer us the necessary potentiality to awaken and to develop the Shakras of our internal bodies and to conquer all those marvelous powers that turn us into MASTERS of LIFE, DEATH, LOVE and that convert us into authentic MEN, into ANGELS and into GODS.  
 
-<div style="text-align:center">![Caduceo](/assets/img/caduceo.jpg)</div>  
+<div style="text-align:center"><img src="/assets/img/caduceo.jpg" alt="Caduceo"></div>  
+
+![Caduceo](/assets/img/caduceo.jpg)
 
 3\.	Sexual Energy is the result of the primordial matter with which enter into functioning the magnetic wheels or Shakras of the internal bodies.  
 
