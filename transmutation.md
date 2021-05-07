@@ -12,8 +12,6 @@ _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by 
 
 <div style="text-align:center"><img src="/assets/img/caduceo.jpg" alt="Caduceo"></div>  
 
-![Caduceo](/assets/img/caduceo.jpg)
-
 3\.	Sexual Energy is the result of the primordial matter with which enter into functioning the magnetic wheels or Shakras of the internal bodies.  
 
 4\.	The Divine Energy contained in the ENS SEMINIS, in the human seed, must be transformed, transmuted from its eminently material aspect into energy eminently Divine.  
