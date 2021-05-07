@@ -4,6 +4,8 @@
 
 ![Caduceo](/assets/img/caduceo.jpg)  
 
+{% include youtube.html id="5dD8fyyrrU0" %}  
+
 _(Excerpt from The Book "The Rosicrucian Om Order. The Order Of Melchisedek" by V. M. Om Yeo Wams Om.)_
 
 1\.	For the achievement of our dearest goals on the Path of the CROSS and the ROSE, it is indispensable, before anything, to maintain a life of CHASTITY.  
