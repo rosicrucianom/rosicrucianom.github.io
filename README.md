@@ -1,7 +1,6 @@
 # The Rosicrucian Om Order - The Order Of Melchisedek
 
-{% include youtube.html id="_-sAQoZ2o18" %}  
-[(A chapter from Audiobooks)](./publications.html)  
+{% include youtube.html id="5dD8fyyrrU0" %}  
 
 The origin of Rosicrucians, august members of the **Great White Fraternity**, faithful apostles of the Rosicrucian Order, fade in the night of the centuries.  
 
@@ -18,6 +17,9 @@ The Great Mystical Rose means the Great Work's total magnificent achievement. Th
 The Rose in the Cross simbolizes the INNER CHRIST, which blooms over the cross, after the electro-magnetic exchange of the two poles also symbolized in the vertical and horizontal logs.  
 
 The ROSICRUCIAN is a clear symbol of the SOLAR ARCANUM, it´s the sign of the FULFILLED MAN, a CHRIST man.  
+
+{% include youtube.html id="_-sAQoZ2o18" %}  
+[(A chapter from Audiobooks)](./publications.html)  
 
 All those people hidden in the desert sand, immerse in the oceans or in the walls of the mountains as in the white poles, knew to the bottom the meaning of the ROSE CROSS and they lived it very intensively.  
 
