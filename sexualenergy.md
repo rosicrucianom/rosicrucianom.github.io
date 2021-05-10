@@ -1,5 +1,7 @@
 # Sexual Energy, Sexual Alchemy
 
+{% include youtube.html id="5dD8fyyrrU0" %}  
+
 _(Excerpts from The Book "Alchemical Wedding" by V. M. Om Yeo Wams Om.)_
 
 1\. In the whole infinite cosmos there is movement, life, light and fire because there is energy in it.  
